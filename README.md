@@ -108,7 +108,7 @@
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648126888415282/Clear_Futuristic_Miku_2.0_M.png?ex=658cbc8b&is=657a478b&hm=3fff200f25e61a3244feff0181f6fe6a8ca82e4f32b1d2d0a3028b64b582c639&"/>
 
 <h1 align="center">DefinitelyNotRGB <
-<align="center">Download: <a href="" target="_blank">Click</h1> 
+<align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648172019134494/DefinitelyNotRGB.png?ex=658cbc95&is=657a4795&hm=526600ea09c8d83e966acccc5822701c8f40052dace6a86ff1d7367d50a1846c&"/>
 
 <h1 align="center">DuckLeader is gud player <
