@@ -179,4 +179,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649141306015785/-_Silver.png?ex=658cbd7d&is=657a487d&hm=acd17ab558c1e77e39d13c1d5cb44474c76460b3c5ebb8f967e36df9ebf3fa0a&"/>
 
-<h1 align="center">Количество скинов: 43</h1>
+<h1 align="center">Количество скинов: 44</h1>
