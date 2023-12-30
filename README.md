@@ -43,6 +43,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1C8VKBEzV7Ax1zYJgaC4tOoAPOgiHMKRf/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646989267349546/Arnold_Cinnamoroll_x_Miku.png?ex=658cbb7b&is=657a467b&hm=ea3b4389441004e829ed2fa133a3c2c00faa40450ef2d9f84b5871d7c2ee32d4&"/>
 
+<h1 align="center">-    Talala-Chad ⩽ ninerik old ⩾ <
+<align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543219482689556/-_Talala-Chad_ninerik_old_.png?ex=65a22ec6&is=658fb9c6&hm=4592c3ea9f99b1225fe7d6bd90cc2bee7c63f96ca85f5e0c779a9be89ecf429b&"/>
+
 <h1 align="center">- Epilogue - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vbwU5ylSNU6NM8bMj98pyzyb3Gzbov07/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647066073432064/-_Epilogue_-.png?ex=658cbb8e&is=657a468e&hm=4c55f6d96bc06f268cfb63a47c7a7139b45a5346be6b4014dc466ebe2913145c&"/>
@@ -50,6 +54,10 @@
 <h1 align="center">- WhatsApp - <
 <align="center">Download: <a href="https://drive.google.com/file/d/13XlJS3_DYJrTk-HlQ_aUL2clRJCEpH2L/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647171765698601/-_WhatsApp_-.png?ex=658cbba7&is=657a46a7&hm=25b3d480d7a6d1f31fe2a2b07ca25f39d47f959356bca6e0ede9c082fa99697f&"/>
+
+<h1 align="center">- YUGEN FINAL - Widescreen <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Cj-87TQS_IEjPB7_cIzX1pDk97FSF6zu/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543541542330438/-_YUGEN_FINAL_-_Widescreen.png?ex=65a22f13&is=658fba13&hm=4c1d8e5c5e93a3ced2f7ff997b4949108e2d6ea57ced2314e0b0826ef002c1d8&"/>
 
 <h1 align="center"># Hitori Gotou - <
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
@@ -167,9 +175,17 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649062306283541/Rafis_2018-03-26_HDDT_akolibed_edit_yellow_cursor.png?ex=658cbd6a&is=657a486a&hm=a66320dc25390316c77562e2e57073b33cbe17932f835718c887b1f17083bc76&"/>
 
+<h1 align="center">RafisXVarvalian <
+<align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543852239605811/RafisXVarvalian.png?ex=65a22f5d&is=658fba5d&hm=bf47f0ca39b62d8b60ca42e5d3257752229ac0728c17f95026ec1c6224a739fa&"/>
+
 <h1 align="center">-tvutsuloli (akolibed edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1185846609901260861/-tvutsuloli_akolibed_edit.png?ex=659118b7&is=657ea3b7&hm=519a18c4ce92be461210955620f32c40218c85f6ea78d1a871fbe5241626f1bd&"/>
+
+<h1 align="center">Vaxei 2023 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Q-gSUFZgoCAYg28vncdKx_-boK0FFG_A/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65a22f86&is=658fba86&hm=aac52708ffac77c3f7675572eef15c386f06ed402f1a2fcf3b68a5bf10939e0e&"/>
 
 <h1 align="center">xblue+rafishddt <
 <align="center">Download: <a href="https://drive.google.com/file/d/18UxvRpek4CNdxkz8DKX4J4Zm-9LIflvc/view?usp=sharing" target="_blank">Click</h1> 
@@ -179,4 +195,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649141306015785/-_Silver.png?ex=658cbd7d&is=657a487d&hm=acd17ab558c1e77e39d13c1d5cb44474c76460b3c5ebb8f967e36df9ebf3fa0a&"/>
 
-<h1 align="center">Количество скинов: 44</h1>
+<h1 align="center">Количество скинов: 48</h1>
