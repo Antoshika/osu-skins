@@ -47,9 +47,17 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543219482689556/-_Talala-Chad_ninerik_old_.png?ex=65a22ec6&is=658fb9c6&hm=4592c3ea9f99b1225fe7d6bd90cc2bee7c63f96ca85f5e0c779a9be89ecf429b&"/>
 
+<h1 align="center">- eLy's+Rika+Ichinose <
+<align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754354994823198/-_eLysRikaIchinose.png?ex=65aa3a0e&is=6597c50e&hm=67246ec8bdca488159be5a7248549bb072bd28ed3b0e265f1afb7ebdf080b3d4&"/>
+
 <h1 align="center">- Epilogue - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vbwU5ylSNU6NM8bMj98pyzyb3Gzbov07/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647066073432064/-_Epilogue_-.png?ex=658cbb8e&is=657a468e&hm=4c55f6d96bc06f268cfb63a47c7a7139b45a5346be6b4014dc466ebe2913145c&"/>
+
+<h1 align="center">- Seoul v11 Asta Edit <
+<align="center">Download: <a href="https://drive.google.com/file/d/1S3IBjZ0ARTnPJ2KEUdacg2qb9t861rV3/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754608947339344/-_Seoul_v11_Asta_Edit.png?ex=65aa3a4b&is=6597c54b&hm=b6f952ede082c9c58d22e29e5a6015a71f4097b6b4aa86d998f0437bd5f40d5d&"/>
 
 <h1 align="center">- WhatsApp - <
 <align="center">Download: <a href="https://drive.google.com/file/d/13XlJS3_DYJrTk-HlQ_aUL2clRJCEpH2L/view?usp=sharing" target="_blank">Click</h1> 
@@ -114,6 +122,14 @@
 <h1 align="center">Clear Futuristic Miku 2.0 M <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iB7TG1yjzj6E4TvWcIHZHkkAViTIq7f5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648126888415282/Clear_Futuristic_Miku_2.0_M.png?ex=658cbc8b&is=657a478b&hm=3fff200f25e61a3244feff0181f6fe6a8ca82e4f32b1d2d0a3028b64b582c639&"/>
+
+<h1 align="center">Cookiezi 15.1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/14DPQosww2wwV4uk3VS-_F0VBn5VHOFVK/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754855522095184/Cookiezi_15.1.png?ex=65aa3a85&is=6597c585&hm=d246bf4676278a8cb25756d7a9e087c34d1b8a7cd577fc5d0a58d090e52db96a&"/>
+
+<h1 align="center">Cookiezi 18 2016-08-10 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1VBI4eklh4oDoPfnoTP2GgT8IHoz0MSEc/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192755102147162172/Cookiezi_18_2016-08-10.png?ex=65aa3ac0&is=6597c5c0&hm=6b55c2e0fb1a6db911e697fb7cffc7f54e3895bfc355d4d4c11d9ce80484712b&"/>
 
 <h1 align="center">DefinitelyNotRGB <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
@@ -183,6 +199,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1185846609901260861/-tvutsuloli_akolibed_edit.png?ex=659118b7&is=657ea3b7&hm=519a18c4ce92be461210955620f32c40218c85f6ea78d1a871fbe5241626f1bd&"/>
 
+<h1 align="center">Valorant Jett skin <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ZyQuWdjclYAzsa89j-o2i4UuLZxV1TJb/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192755310599880734/Valorant_Jett_skin.png?ex=65aa3af2&is=6597c5f2&hm=367c531fb6b67036425d9454cfae21e067d0904c8ea21300537100285887ef4b&"/>
+
 <h1 align="center">Vaxei 2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Q-gSUFZgoCAYg28vncdKx_-boK0FFG_A/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65a22f86&is=658fba86&hm=aac52708ffac77c3f7675572eef15c386f06ed402f1a2fcf3b68a5bf10939e0e&"/>
@@ -195,4 +215,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649141306015785/-_Silver.png?ex=658cbd7d&is=657a487d&hm=acd17ab558c1e77e39d13c1d5cb44474c76460b3c5ebb8f967e36df9ebf3fa0a&"/>
 
-<h1 align="center">Количество скинов: 48</h1>
+<h1 align="center">Количество скинов: 53</h1>
