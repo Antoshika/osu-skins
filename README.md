@@ -132,11 +132,11 @@
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1192755102147162172/Cookiezi_18_2016-08-10.png?ex=65aa3ac0&is=6597c5c0&hm=6b55c2e0fb1a6db911e697fb7cffc7f54e3895bfc355d4d4c11d9ce80484712b&"/>
 
 <h1 align="center">DefinitelyNotRGB <
-<align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
+<align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648172019134494/DefinitelyNotRGB.png?ex=658cbc95&is=657a4795&hm=526600ea09c8d83e966acccc5822701c8f40052dace6a86ff1d7367d50a1846c&"/>
 
 <h1 align="center">DuckLeader is gud player <
-<align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
+<align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648366488031294/DuckLeader_is_gud_player.png?ex=658cbcc4&is=657a47c4&hm=7eacbc4db1136c492364b75c9b7deb893a8e443a0c8884317f52377862010309&"/>
 
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
