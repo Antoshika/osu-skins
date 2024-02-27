@@ -13,15 +13,15 @@
 
 <h1 align="center">-         《CK》 WhiteCat 3.0 ~ v3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/17-VrnnZCx6gFuq5zHDo6jSOLzphbIMHx/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646433173930065/CK_WhiteCat_3.0__v3.png?ex=658cbaf7&is=657a45f7&hm=521990ef88ff6132b18712af445971516276ddfe985171bee55925ba595db61f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1211833767094653058/CK_WhiteCat_3.png?ex=65efa324&is=65dd2e24&hm=a42969d2afc57234b3cb7a595ec7d8b19a2ff7081663e703151c454856355529&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-         《CK》 WhiteCat 3.0 ~ DT <
 <align="center">Download: <a href="https://drive.google.com/file/d/1f_YthfufMyenFGge6pIAcQ8RJIekE_y5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646476836655154/CK_WhiteCat_3.0__DT.png?ex=658cbb01&is=657a4601&hm=43a14250359c8ab546232a54aeae695d9d00456d2285f86eb35cae550f7336dd&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184646476836655154/CK_WhiteCat_3.0__DT.png?ex=65e90401&is=65d68f01&hm=5a212d67edc6f67643ce13414657df036efd3a52fcb0134c6c0e7c18b4e61b3f&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-         aesthetic.vAzurlane1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/10A7_ezYWIyC1WOkWl7h7TBBZT5gfn8O4/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646548307574824/aesthetic.vAzurlane1.0.png?ex=658cbb12&is=657a4612&hm=06a529a938fdbf05a5b701c7d867f9fbbe93f668f4e4efe6b3be3ef29a92bf5f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184646548307574824/aesthetic.vAzurlane1.0.png?ex=65e90412&is=65d68f12&hm=a03d2bc031ebc12d130c712b535fe307b9dba473682a505443d67ead89e221ba&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-         Nekomata Okayu [A33] 16_10 Non-Weeb <
 <align="center">Download: <a href="https://drive.google.com/file/d/19IhDr2OEpa5WDvzYVO6DHZ0NHEs2Xxd6/view?usp=sharing" target="_blank">Click</h1> 
@@ -29,11 +29,11 @@
 
 <h1 align="center">-        # WhiteCat (1.0) 『CK』 #- <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Ok_qxkNfBiCeyVihDfi40BhzMsH62dx4/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646721041612840/WhiteCat_1.0_CK_-.png?ex=658cbb3b&is=657a463b&hm=e9d44aab81dd5b477d1777dcaa03740bc75347a23079ad87fc5db77a75e9649a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184646721041612840/WhiteCat_1.0_CK_-.png?ex=65e9043b&is=65d68f3b&hm=190aa88a7ad7b4fa79754fba8037afd2ba905abde0123a85a59280f336ca080c&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-       # 『NM1』 Cinnamoroll x Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1hw7mdBrfkQRrLBOor6Ys2r7vq79MSDMS/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184646843712413746/NM1_Cinnamoroll_x_Miku.png?ex=658cbb59&is=657a4659&hm=f6d456b4aa53f1d378be12c37cd905bc60240d0cbd1e58edbb79ef7b1a47a51f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184646843712413746/NM1_Cinnamoroll_x_Miku.png?ex=65e90459&is=65d68f59&hm=f8000642d04eae6d84f14c4885208b3115992cf818e442a3d85bd734cfced948&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-       # 『DT』 Cinnamoroll x Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1yE3mSuKrMrvSUD0tEvj4NtvyEOprmpT2/view?usp=sharing" target="_blank">Click</h1> 
@@ -45,15 +45,15 @@
 
 <h1 align="center">-    Talala-Chad ⩽ ninerik old ⩾ <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543219482689556/-_Talala-Chad_ninerik_old_.png?ex=65a22ec6&is=658fb9c6&hm=4592c3ea9f99b1225fe7d6bd90cc2bee7c63f96ca85f5e0c779a9be89ecf429b&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1190543219482689556/-_Talala-Chad_ninerik_old_.png?ex=65ec02c6&is=65d98dc6&hm=bf90ed6cc16b0fbe51804e56da5f27afcf20adb5edf8f7cd356de358c4c3a2a8&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">- uwunasia <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200835266135457812/-_uwunasia.png?ex=65c79ffd&is=65b52afd&hm=2bad05e8c5c2aab3556542074f6b3a43850f95b62e139bfd68dbe06c9b64e27b&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200835266135457812/-_uwunasia.png?ex=65ec89fd&is=65da14fd&hm=6430379e345a5360b31317e3ea125ccdd9e775dd4a1dea8238c11c3980a69062&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">- eLy's+Rika+Ichinose <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754354994823198/-_eLysRikaIchinose.png?ex=65aa3a0e&is=6597c50e&hm=67246ec8bdca488159be5a7248549bb072bd28ed3b0e265f1afb7ebdf080b3d4&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1192754354994823198/-_eLysRikaIchinose.png?ex=65ead38e&is=65d85e8e&hm=2e70b49fd8c511b349e6ea3ab4ae06d6500bf9670c236893a4c25c2480740073&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">- Epilogue - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vbwU5ylSNU6NM8bMj98pyzyb3Gzbov07/view?usp=sharing" target="_blank">Click</h1> 
@@ -61,55 +61,55 @@
 
 <h1 align="center">- Seoul v11 Asta Edit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1S3IBjZ0ARTnPJ2KEUdacg2qb9t861rV3/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754608947339344/-_Seoul_v11_Asta_Edit.png?ex=65aa3a4b&is=6597c54b&hm=b6f952ede082c9c58d22e29e5a6015a71f4097b6b4aa86d998f0437bd5f40d5d&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1192754608947339344/-_Seoul_v11_Asta_Edit.png?ex=65ead3cb&is=65d85ecb&hm=4f4523c810d490fafddd22033ad96a39437101bba7a550cb632e2d7abdc946d0&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">- WhatsApp - <
 <align="center">Download: <a href="https://drive.google.com/file/d/13XlJS3_DYJrTk-HlQ_aUL2clRJCEpH2L/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647171765698601/-_WhatsApp_-.png?ex=658cbba7&is=657a46a7&hm=25b3d480d7a6d1f31fe2a2b07ca25f39d47f959356bca6e0ede9c082fa99697f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647171765698601/-_WhatsApp_-.png?ex=65e904a7&is=65d68fa7&hm=b4bead6aa343fad00769ce97a034837fb5224884f4a6dfab8b6cfff27fcd6605&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">- YUGEN FINAL - Widescreen <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Cj-87TQS_IEjPB7_cIzX1pDk97FSF6zu/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543541542330438/-_YUGEN_FINAL_-_Widescreen.png?ex=65a22f13&is=658fba13&hm=4c1d8e5c5e93a3ced2f7ff997b4949108e2d6ea57ced2314e0b0826ef002c1d8&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1190543541542330438/-_YUGEN_FINAL_-_Widescreen.png?ex=65ec0313&is=65d98e13&hm=76dec668a38c392e5df92529f8331c6e1177844beb4b34ec5bcd6970810aecbd&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center"># Hitori Gotou - <
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647230041370714/Hitori_Gotou_-.png?ex=658cbbb5&is=657a46b5&hm=85fc6467ee550c51d841fa50f74f757040cb60c413db360f8a71c4d6f2032dc5&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647230041370714/Hitori_Gotou_-.png?ex=65e904b5&is=65d68fb5&hm=b2aa3471a561d584758c7a8f88f864240d60eec5958ba50c3cdc77aa88789d23&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">[# naeroK ] <
 <align="center">Download: <a href="https://drive.google.com/file/d/18l_0IlRZbjOI4ekfMfzWQ4_XQeXalZOQ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647276946280500/naeroK_.png?ex=658cbbc0&is=657a46c0&hm=fb9d6bed4f3ba7aa19f1e640e0ddd765b44b58a0c43b4e5fcf2a253f2dc62b4a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647276946280500/naeroK_.png?ex=65e904c0&is=65d68fc0&hm=f8e937fc94733ee6150ff5586c39dadf89182089820a00c5de02b70ed2978e70&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">[BY] Skadi Waverider NM (Arknights) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ex3z8gC39dp7f6hw7jPVJEgf0sHmii7c/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647335469396100/BY_Skadi_Waverider_NM_Arknights.png?ex=658cbbce&is=657a46ce&hm=2d6492e63ec9ff5a21335497b314d711f4a521bec75a4895f13fdffe4469c8fe&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647335469396100/BY_Skadi_Waverider_NM_Arknights.png?ex=65e904ce&is=65d68fce&hm=9a60b52e7f89d1b4618705929aba98f2f8c70fd978be50b24e74484823c9b73c&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-_Reqs_Mirai_SZ <
 <align="center">Download: <a href="https://drive.google.com/file/d/17KXgIge8bilbiH6t2C2FTYFJW7TD_xOL/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647384102359122/-_Reqs_Mirai_SZ.png?ex=658cbbda&is=657a46da&hm=bd3f9e39ed5064cef5e1765385ab74be814fd105597b61fae10ac84404d00f71&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647384102359122/-_Reqs_Mirai_SZ.png?ex=65e904da&is=65d68fda&hm=db48911431ed445309e91863416d345918c1ad480b087636352bc381a188b6dc&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-_Selyui_1.1_- <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Uwt0HJPczMaDuxJ0ji89iaZt04bQkYHN/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647450707890227/-_Selyui_1.1_-.png?ex=658cbbe9&is=657a46e9&hm=1b87cac4a101bcd19fb3c214efb3ddb8af5e4c395c254c6b90db1f5b9421c00e&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647450707890227/-_Selyui_1.1_-.png?ex=65e904e9&is=65d68fe9&hm=0063c373526cd33b564aaacf6f81ce0a806fa0edceba954f333a6df7d2e6f59d&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">「 Sakuropiaʸ 」 <
 <align="center">Download: <a href="https://drive.google.com/file/d/15tT8RJ0Efcy4kLpFS3jXa8_L2Mxx7c_V/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647510468329492/Sakuropiay_.png?ex=658cbbf8&is=657a46f8&hm=c1e1a0769643cd59b0fdbb515434583ab3ab38d622fb2abeb4358e650e0b6d7a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647510468329492/Sakuropiay_.png?ex=65e904f8&is=65d68ff8&hm=89c39a1d6844ce72c499fbe51a693cae7db37f1e39e6413164d8ec61ced44da7&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">「Mio」 Windosu XP (Standard) [v2.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tbWLg3UiDQHEECB5SCuT0LNuLbP58g_N/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200835523539914772/Mio_Windosu_XP_Standard_v2.1.png?ex=65c7a03b&is=65b52b3b&hm=3436126fb720a6c1edf38a0109acc589e1c19f794238e6f0c71392ab5afd0db2&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200835523539914772/Mio_Windosu_XP_Standard_v2.1.png?ex=65ec8a3b&is=65da153b&hm=8b5ec6c4804a196f6fd84e2572404d48409cbf7edb96c83609ef2cfb8950f8eb&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">antoshika 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1cDEobRq36cM-CUtbfjxGy2IHwBth575R/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647575589114028/antoshika_1.0.png?ex=658cbc07&is=657a4707&hm=0d641ab51ad3905a20622ae00a2f8d05b1fcf6582a00337ce6723194b9d31a22&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647575589114028/antoshika_1.0.png?ex=65e90507&is=65d69007&hm=972bf840eecf25032a2949617766dd0bcec01733a0a1501f551a8e45a3026154&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">antoshika 1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/19axhTJOgfDvtiNG73bv6cgkhKcmsdDTn/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647683823116329/antoshika_1.1.png?ex=658cbc21&is=657a4721&hm=69f41bd5be57dfdb3e2b03a43ee43a7fe15be2f22f38acb1d0d36962552faab4&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647683823116329/antoshika_1.1.png?ex=65e90521&is=65d69021&hm=600771f306a06eff7eb574c9f0595258222c899a37d438846559713aebe49c79&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">antoshika 1.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1zl7ymSIyZgfJXE6PqGGpPHGeyk8cuh5_/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647736490983434/antoshika_1.2.png?ex=658cbc2e&is=657a472e&hm=3bf63636d0860540cd3f6a521cd8e595a596cb99a6318d164c077552706dd417&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647736490983434/antoshika_1.2.png?ex=65e9052e&is=65d6902e&hm=e677e773f5e8871bf3fd726f0c393ae2a69489e6f1551864c881ca0b0edb0ff6&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">antoshika 1.3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1t2BwH_T15aK0eXpwiY_pNRJvQzotLOX7/view?usp=sharing" target="_blank">Click</h1> 
@@ -117,55 +117,55 @@
 
 <h1 align="center">antoshika 1.4 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1eOywN5cIHmAfsJ2f43Fv5Ra04vYZkjTj/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184647994562314240/antoshika_1.4.png?ex=658cbc6b&is=657a476b&hm=bcc70966e05d89cade262861d88f9379b2536ba9de11c8cdabbcd8cc62f90e16&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184647994562314240/antoshika_1.4.png?ex=65e9056b&is=65d6906b&hm=479da1e7c111dfafa697c28cf6eeb2f937c8b4766fdb5ebd6b1f0ec49f6489be&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648049025368154/bowdown.png?ex=658cbc78&is=657a4778&hm=504e2a40d8215a72c1ffcd66d4ceb3dae12d0020de1eb54614436648d90490b5&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648049025368154/bowdown.png?ex=65e90578&is=65d69078&hm=8c2828911f5ce6705ea84944781b439d3c03788223a6ff09460b72a72ed5af82&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkin18-03-22 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836147602006026/BubbleSkin18-03-22.png?ex=65c7a0d0&is=65b52bd0&hm=4788f20a465a8ea225126cae9f0d0f1efb31d7bdcec7cde9841a893ee807637c&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836147602006026/BubbleSkin18-03-22.png?ex=65ec8ad0&is=65da15d0&hm=6ed19e4562be37e3f319ab3b13b8c591862328250c6e1062e2c74bf09dd68ec5&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkin18-05-04 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1l4YH5kNYDFZUzjVxeXwjSQke14F9Y-ug/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836193479311522/BubbleSkin18-05-04.png?ex=65c7a0da&is=65b52bda&hm=a423ed2dd99610179ed9f6eda30bc7a3fc497674eaea0fc7cba51530293c6c03&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836193479311522/BubbleSkin18-05-04.png?ex=65ec8ada&is=65da15da&hm=0b8394d35ebf0b603a8ae157bc17c1048d5afe0f11a05385fcde8b42f0fd6fbe&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkin20-10-09 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1J4F-tMz2tU0lkuit2PNtHGXPqw-yx14-/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836240614887434/BubbleSkin20-10-09.png?ex=65c7a0e6&is=65b52be6&hm=4f8f0cd823bf5ee26e0c06612a8c26e443da5c823a0f30d80e612aa875cc2585&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836240614887434/BubbleSkin20-10-09.png?ex=65ec8ae6&is=65da15e6&hm=0522faef3cba3415469985bf726e1fc791b0f2474b63d6fc3e39d31f6959604c&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkin23-10-24 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1aJTnXF1QQGzfjD-KWMHWX5By_gOCQctZ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836318884798474/BubbleSkin23-10-24.png?ex=65c7a0f8&is=65b52bf8&hm=5f90aefef153ed25224a56e006a2eb4a40b0bdc62b395190ab9dafc4deefaa35&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836318884798474/BubbleSkin23-10-24.png?ex=65ec8af8&is=65da15f8&hm=90912628f604aef0938b905452f0b9977f1501ce3e60c37e2a285a8609c50e87&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkinDT <
 <align="center">Download: <a href="https://drive.google.com/file/d/1a4XhAECX4wCCHNyPrT8ex1TsErdOtpRH/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836394306769006/BubbleSkinDT.png?ex=65c7a10a&is=65b52c0a&hm=d78804bc41160c1b824a561b93fa7534f92c7f6adf15712e588095e5ab915ead&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836394306769006/BubbleSkinDT.png?ex=65ec8b0a&is=65da160a&hm=56164f5cf4c61397a33fa846b03fdead63948549a608bafade26e6f5d803fc97&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">BubbleSkinHappyEdit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lR_ShoYY9NeHl9lVA9ZCWExp0garHhFw/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200836444265132152/BubbleSkinHappyEdit.png?ex=65c7a116&is=65b52c16&hm=b72d4196092cfbc1350f78b1f5bed88793fe606bef8d5b044141a27037668422&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200836444265132152/BubbleSkinHappyEdit.png?ex=65ec8b16&is=65da1616&hm=de41f5ca016b7719c7b6792fe9251eb6c336d67418e79bb964f96dcd8d429f40&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Chroma <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UsiQRmyQUjOLHfW06HE0f32fx8prsV--/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648085650026576/Chroma.png?ex=658cbc81&is=657a4781&hm=3f4ad5d7c295f096abcafa7f472ae7206b94ce1b67c134b039558ab461230b3a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648085650026576/Chroma.png?ex=65e90581&is=65d69081&hm=df861b1ec3fc5e892d35b04d5a0ded3e7e0d229687beeda68b5b37756aec051b&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Clear Futuristic Miku 2.0 M <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iB7TG1yjzj6E4TvWcIHZHkkAViTIq7f5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648126888415282/Clear_Futuristic_Miku_2.0_M.png?ex=658cbc8b&is=657a478b&hm=3fff200f25e61a3244feff0181f6fe6a8ca82e4f32b1d2d0a3028b64b582c639&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648126888415282/Clear_Futuristic_Miku_2.0_M.png?ex=65e9058b&is=65d6908b&hm=ef0bce1dac4f590e2ab04547e257980934e531cd107152a5afa3ec63092f571f&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Cookiezi 15.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/14DPQosww2wwV4uk3VS-_F0VBn5VHOFVK/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192754855522095184/Cookiezi_15.1.png?ex=65aa3a85&is=6597c585&hm=d246bf4676278a8cb25756d7a9e087c34d1b8a7cd577fc5d0a58d090e52db96a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1192754855522095184/Cookiezi_15.1.png?ex=65ead405&is=65d85f05&hm=dcf96a5b54cd1635ddba7abab5a05aabfadcdf9755f4cbfe0f6d7440d5e8cdfa&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Cookiezi 18 2016-08-10 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VBI4eklh4oDoPfnoTP2GgT8IHoz0MSEc/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1192755102147162172/Cookiezi_18_2016-08-10.png?ex=65aa3ac0&is=6597c5c0&hm=6b55c2e0fb1a6db911e697fb7cffc7f54e3895bfc355d4d4c11d9ce80484712b&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1192755102147162172/Cookiezi_18_2016-08-10.png?ex=65ead440&is=65d85f40&hm=fe7fbf7f30aa43ee06dea33f27ce37a732e91a4d3f2adb4b62c0b35cf8efb478&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">CS Skin ver.6.9 DUB Edition Remix <
 <align="center">Download: <a href="https://drive.google.com/file/d/1oCwrJvQf0er8EZORdqOwxPEuokz3i309/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200835735067046058/CS_Skin_ver.6.9_DUB_Edition_Remix.png?ex=65c7a06d&is=65b52b6d&hm=7a208fed93c1f67f4d764307930b581ac540170f1b076b1841512c712cb8e65d&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200835735067046058/CS_Skin_ver.6.9_DUB_Edition_Remix.png?ex=65ec8a6d&is=65da156d&hm=df2cc3e939505aa02c0635bd48c3b329a2e769abcc760b4a94836f7b901f2168&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">DefinitelyNotRGB <
 <align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
@@ -173,11 +173,11 @@
 
 <h1 align="center">DuckLeader is gud player <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648366488031294/DuckLeader_is_gud_player.png?ex=658cbcc4&is=657a47c4&hm=7eacbc4db1136c492364b75c9b7deb893a8e443a0c8884317f52377862010309&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648366488031294/DuckLeader_is_gud_player.png?ex=65e905c4&is=65d690c4&hm=92785ad3690c6b588a221f68e34af75f93434bcffc0058995cc9366fe3d02dbc&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qLuBuEDh9nDVPz1EPh4aDFvIlFNDGbGS/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648416928739350/Hayase_Yuuka_worst_hr_player_edit.png?ex=658cbcd0&is=657a47d0&hm=64816123451b1ae803f4de16ad7679f4951e4f305231300035df3e906a1a7b6c&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648416928739350/Hayase_Yuuka_worst_hr_player_edit.png?ex=65e905d0&is=65d690d0&hm=ecb72174dd3bbfe58fafea8d286bc8684aab34375b7acd7111350470c24786ce&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">idke 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/18V8bHakHBdMDyZQeiywtNxxuh70G0mUi/view?usp=sharing" target="_blank">Click</h1> 
@@ -185,15 +185,15 @@
 
 <h1 align="center">idke 2018-07-12 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1yCghIQKZAH99GGJhfVJW75DHb-Vk4520/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648540471955546/idke_2018-07-12.png?ex=658cbced&is=657a47ed&hm=27dbde6d27dbe2628a868792150d05c4b929c8fd38c5ccdd19be6458d2220747&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648540471955546/idke_2018-07-12.png?ex=65e905ed&is=65d690ed&hm=5f4b93e763d4e269fd214fb43310e0e458f3b1d5c1819b6d1bbfc1b4b5a6f6c3&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Menhera-chan <
 <align="center">Download: <a href="https://drive.google.com/file/d/1T_CutkMyIGvK_rjD228IBWxkSLj2NoON/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648583413243975/Menhera-chan.png?ex=658cbcf7&is=657a47f7&hm=f01844d24b7abc33af6c37ac1f9634ff2d154202dd7dba71d37da5c6fa734bcf&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648583413243975/Menhera-chan.png?ex=65e905f7&is=65d690f7&hm=d1839741049d34df28eb12955df2ccd37dd9dd5ce5f9745343167cc260ac8b58&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">MINECRAFT KRUGI <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Tn7FjNJcJ2t2h3T8TapUWFGIHuY3zXWM/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648630318137404/MINECRAFT_KRUGI.png?ex=658cbd03&is=657a4803&hm=1fc68400e85fd9e9103ab75baa8d81a561608888383a2d0e431fcc075cc3ec0d&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648630318137404/MINECRAFT_KRUGI.png?ex=65e90603&is=65d69103&hm=e9d0ad14b8537dc1e0c7796357805c16b7ebf9cddd131e5e0076cf245cdd4403&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">MonkoEdit <
 <align="center">Download: <a href="https://drive.google.com/file/d/17uKp32iK6oduHClBlWNLZWQM1GF6ZdY9/view?usp=sharing" target="_blank">Click</h1> 
@@ -201,43 +201,43 @@
 
 <h1 align="center">MonkoEditAntoshika <
 <align="center">Download: <a href="https://drive.google.com/file/d/17yK2kuyBwu03lAjobuC3iJXV9QdAAIpH/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648709519196200/MonkoEditAntoshika.png?ex=658cbd16&is=657a4816&hm=e7ac3a9b3b80a932405efd9b696b93af15a541449f209e3e2d28e8973dd1226f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648709519196200/MonkoEditAntoshika.png?ex=65e90616&is=65d69116&hm=6a035e1a0635a691438e589c7c14c45de3b114f9967674395dd8bee94abe5bb5&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">MonkoGlassTest <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fu5ToFBY56az-Rhs1-VpXSxvAR1cX7FE/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648860702887976/MonkoGlassTest.png?ex=658cbd3a&is=657a483a&hm=bb69114b14775b02636f9564f9d878671ed44424a8569901eceae2ce73f9f036&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648860702887976/MonkoGlassTest.png?ex=65e9063a&is=65d6913a&hm=884398a4948cc022b74315ad3e716f3744d46183e463f53e78145c3ef8ee1761&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">osu! color <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fh3Bfp-weOS7aY1M35t-yCkDBIjrs5zT/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648901958053888/osu_color.png?ex=658cbd43&is=657a4843&hm=5615e40f705aef974224dea0a09992c14ca247df3a34142cd12343b1e34c2354&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648901958053888/osu_color.png?ex=65e90643&is=65d69143&hm=27331138d5b68bf5cdab225c7ba67aea44bd59180f65bdb7b69c3bb4369e2037&=&format=webp&quality=lossless&width=1920&height=1080"/>
   
 <h1 align="center">osu! miku (edit by antoshika) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1wVPBK1CDt9JyWxo994q9dGdMskKzEZaB/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648934669418506/osu_miku.png?ex=658cbd4b&is=657a484b&hm=54144ec32af83366760f8c1e2990ed16b9619fd96e30c0ac90d086627fbdc98f&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648934669418506/osu_miku.png?ex=65e9064b&is=65d6914b&hm=dd5e9579e57fba9ef3989db604da4ff0b274da6fc41de154e6018e8a4b92f733&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Plz Enjoy Game 10-08-17 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tK46FLBb9ss7il5f2GdgsZF9asTsWbGt/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1200834996500430868/Plz_Enjoy_Game_10-08-17.png?ex=65c79fbd&is=65b52abd&hm=d215942cf58d39e36f7f23275f47dc7dd0bb332e3eb5a05ace39b99e970cd9ec&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1200834996500430868/Plz_Enjoy_Game_10-08-17.png?ex=65ec89bd&is=65da14bd&hm=b7391f31eece63e6d38cc1746460617889246cd618b3367e5f4bef5b18a75884&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Rafis +HDDT <
 <align="center">Download: <a href="https://drive.google.com/file/d/190OrpH8SfY8ptMWr_jjOLJ4URTHbaudc/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184648978638311585/Rafis_HDDT.png?ex=658cbd56&is=657a4856&hm=cda51b4d7beed704c58fba92414572e9e8f33472d791b1f28519ae62aeb44a03&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184648978638311585/Rafis_HDDT.png?ex=65e90656&is=65d69156&hm=95cd319b287acb26c23d6b0f567073e7a255e07d9876da6ba69dafe244af056f&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Rafis 2018-03-26 HDDT <
 <align="center">Download: <a href="https://drive.google.com/file/d/1gXB27Esc8jXdMRD9Hb60Or9esMIIumRK/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649022712074291/Rafis_2018-03-26_HDDT.png?ex=658cbd60&is=657a4860&hm=e483cdace134e4a9a514db157e55a1abbd4b502e0008a93b7b7a7f16a12aaa72&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184649022712074291/Rafis_2018-03-26_HDDT.png?ex=65e90660&is=65d69160&hm=7795f1d9722d756f682c4c68ace3ac306dacfb9bc9e8269fa77e1c32b89ee046&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Rafis 2018-03-26 HDDT (akolibed edit) yellow cursor <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649062306283541/Rafis_2018-03-26_HDDT_akolibed_edit_yellow_cursor.png?ex=658cbd6a&is=657a486a&hm=a66320dc25390316c77562e2e57073b33cbe17932f835718c887b1f17083bc76&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184649062306283541/Rafis_2018-03-26_HDDT_akolibed_edit_yellow_cursor.png?ex=65e9066a&is=65d6916a&hm=606471ab1c9edeb1d16d9b8875e11fa10f8d85e4d5504696f773a8f98c055488&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">RafisXVarvalian <
 <align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190543852239605811/RafisXVarvalian.png?ex=65a22f5d&is=658fba5d&hm=bf47f0ca39b62d8b60ca42e5d3257752229ac0728c17f95026ec1c6224a739fa&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1190543852239605811/RafisXVarvalian.png?ex=65ec035d&is=65d98e5d&hm=f28385f0dfa4db9aebf24f2e80f897cde0e6162140a381e076afe051eed53926&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">-tvutsuloli (akolibed edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1185846609901260861/-tvutsuloli_akolibed_edit.png?ex=659118b7&is=657ea3b7&hm=519a18c4ce92be461210955620f32c40218c85f6ea78d1a871fbe5241626f1bd&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1185846609901260861/-tvutsuloli_akolibed_edit.png?ex=65ed61b7&is=65daecb7&hm=e8ca5627ffd63a5f7440de826292fc30a4e41d5b450913103fe95ddb000b574a&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Valorant Jett skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZyQuWdjclYAzsa89j-o2i4UuLZxV1TJb/view?usp=sharing" target="_blank">Click</h1> 
@@ -245,18 +245,18 @@
 
 <h1 align="center">Vaxei 2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Q-gSUFZgoCAYg28vncdKx_-boK0FFG_A/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65a22f86&is=658fba86&hm=aac52708ffac77c3f7675572eef15c386f06ed402f1a2fcf3b68a5bf10939e0e&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65ec0386&is=65d98e86&hm=cb28d4008bddf2625d4a8fa559ed257f450199ee3b650f3de9502e2e6274551c&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Vaxei 2023 [Chu Hitsounds] <
 <align="center">Download: <a href="https://drive.google.com/file/d/1k87sTpa54OWIw3NErTZ-XRzawa8yqk9i/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65a22f86&is=658fba86&hm=aac52708ffac77c3f7675572eef15c386f06ed402f1a2fcf3b68a5bf10939e0e&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1190544025409818654/Vaxei_2023.png?ex=65ec0386&is=65d98e86&hm=cb28d4008bddf2625d4a8fa559ed257f450199ee3b650f3de9502e2e6274551c&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">xblue+rafishddt <
 <align="center">Download: <a href="https://drive.google.com/file/d/18UxvRpek4CNdxkz8DKX4J4Zm-9LIflvc/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649103590830221/xbluerafishddt.png?ex=658cbd74&is=657a4874&hm=bb00434b7843da6d0b41aba16ba4ed5ad62b6220687e1a526374fea464e1c6c8&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184649103590830221/xbluerafishddt.png?ex=65e90674&is=65d69174&hm=b3e9fb6964db937167aea274efeab16785456a308393db012f7cd0b24415e476&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">茗猫 - Silver <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://cdn.discordapp.com/attachments/711952596507557948/1184649141306015785/-_Silver.png?ex=658cbd7d&is=657a487d&hm=acd17ab558c1e77e39d13c1d5cb44474c76460b3c5ebb8f967e36df9ebf3fa0a&"/>
+<img src="https://media.discordapp.net/attachments/711952596507557948/1184649141306015785/-_Silver.png?ex=65e9067d&is=65d6917d&hm=493308823e042ccd89b010cb13f66136b32f582cd742e9fca60265e5f0ad2d3b&=&format=webp&quality=lossless&width=1920&height=1080"/>
 
 <h1 align="center">Количество скинов: 64</h1>
