@@ -195,6 +195,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1yCghIQKZAH99GGJhfVJW75DHb-Vk4520/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2FFGm0T/idke-2018-07-12.png"/>
 
+<h1 align="center">Lesta Games <
+<align="center">Download: <a href="https://drive.google.com/file/d/1iE-FusmTCDieaKMtSi4RCHgh2FRNu9ax/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/tXfsxDD/Lesta-Games.png"/>
+
 <h1 align="center">Menhera-chan <
 <align="center">Download: <a href="https://drive.google.com/file/d/1T_CutkMyIGvK_rjD228IBWxkSLj2NoON/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/rQB0cWh/Menhera-chan.png"/>
@@ -239,6 +243,18 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1gXB27Esc8jXdMRD9Hb60Or9esMIIumRK/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/HTm7ph3/Rafis-2018-03-26-HDDT.png"/>
 
+<h1 align="center">Rafis 2018-03-26 HDDT (akolibed edit) blue cursor <
+<align="center">Download: <a href="https://drive.google.com/file/d/11no3RiCln1pfliU81dXJQ26VWyFEw33g/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/NVxcSsM/Rafis-2018-03-26-HDDT-akolibed-edit-blue-cursor.png"/>
+
+<h1 align="center">Rafis 2018-03-26 HDDT (akolibed edit) white cursor x ninerik <
+<align="center">Download: <a href="https://drive.google.com/file/d/14F8oV5tPXbqghKHFj3gBY4z4iWDmMp2I/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/nPK8yvP/Rafis-2018-03-26-HDDT-akolibed-edit-white-cursor-x-ninerik.png"/>
+
+<h1 align="center">Rafis 2018-03-26 HDDT (akolibed edit) whitecat yellow cursor <
+<align="center">Download: <a href="https://drive.google.com/file/d/1uAbqU1Iu3NmV70KBeowYCm-yCIlKWUCT/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Xs5QxVB/Rafis-2018-03-26-HDDT-akolibed-edit-whitecat-yellow-cursor.png"/>
+
 <h1 align="center">Rafis 2018-03-26 HDDT (akolibed edit) yellow cursor <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Z2sxxPH/Rafis-2018-03-26-HDDT-akolibed-edit-yellow-cursor.png"/>
@@ -275,4 +291,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 68</h1>
+<h1 align="center">Количество скинов: 72</h1>
