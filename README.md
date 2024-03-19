@@ -171,6 +171,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/d0qK1R9/Definitely-Not-RGB.png"/>
 
+<h1 align="center">doki_mix_3 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1_Ce2dMJEBMdiZFTa95z_I39SFnlr7-LR/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/GTqNgYk/doki-mix-3.png"/>
+
 <h1 align="center">DuckLeader is gud player <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Sn44w37/Duck-Leader-is-gud-player.png"/>
@@ -178,6 +182,10 @@
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qLuBuEDh9nDVPz1EPh4aDFvIlFNDGbGS/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vLq1GN9/Hayase-Yuuka-worst-hr-player-edit.png"/>
+
+<h1 align="center">Ichika Manga skin <
+<align="center">Download: <a href="https://drive.google.com/file/d/1W8C92dklkz8QkBdpA7nfTZ-liMvcp0Bc/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/7KWq06b/Ichika-Manga-Skin.png"/>
 
 <h1 align="center">idke 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/18V8bHakHBdMDyZQeiywtNxxuh70G0mUi/view?usp=sharing" target="_blank">Click</h1> 
@@ -206,6 +214,10 @@
 <h1 align="center">MonkoGlassTest <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fu5ToFBY56az-Rhs1-VpXSxvAR1cX7FE/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BnbGvj3/Monko-Glass-Test.png"/>
+
+<h1 align="center">Nier A&R <
+<align="center">Download: <a href="https://drive.google.com/file/d/1fOfL0CASNLJMBo7LRw8mfqbMDMr_BMSi/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/z8tjnjb/Nier-A-R.png"/>
 
 <h1 align="center">osu! color <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fh3Bfp-weOS7aY1M35t-yCkDBIjrs5zT/view?usp=sharing" target="_blank">Click</h1> 
@@ -239,6 +251,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/N1dr8N3/tvutsuloli-akolibed-edit.png"/>
 
+<h1 align="center">Vaic-C-1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1CJ9nkD8sfEnjvhWRS-k5AuuZnIoAS49y/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/QK0qs6S/Vain-C-1.png"/>
+
 <h1 align="center">Valorant Jett skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZyQuWdjclYAzsa89j-o2i4UuLZxV1TJb/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/7Xb6TW8/Valorant-Jett-skin.png"/>
@@ -259,4 +275,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 64</h1>
+<h1 align="center">Количество скинов: 68</h1>
