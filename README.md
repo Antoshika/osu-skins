@@ -77,7 +77,7 @@
 
 <h1 align="center">!!!!!!!!!! - ⚝ Lady BERNKASTEL ⚝ BEBROVIK <
 <align="center">Download: <a href="https://drive.google.com/file/d/11ZepLELrAlDiAVZQIaOyRl7yNNkHt5nP/view?usp=sharing" target="_blank">Click</h1> 
-<img src=""/>
+<img src="https://i.ibb.co/pyfjmXY/Lady-BERNKASTEL-BEBROVIK.png"/>
 
 <h1 align="center"># Hitori Gotou - <
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
