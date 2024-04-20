@@ -5,7 +5,7 @@
 
 <h1 align="center">-             #  『SPUTNIX-NM』 v1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lXiy9XGJm5JRI_CX5TPGHOGqcLUBJgpH/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/N10mLQr/SPUTNIX-NM-v1-1.png"/>
+<img src="https://i.ibb.co/C62X4mK/SPUTNIX-NM-v1-1.png"/>
 
 <h1 align="center">-         《CK》 Bacon boi 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
