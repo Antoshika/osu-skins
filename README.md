@@ -79,6 +79,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/11ZepLELrAlDiAVZQIaOyRl7yNNkHt5nP/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/pyfjmXY/Lady-BERNKASTEL-BEBROVIK.png"/>
 
+<h1 align="center"># Ayanami <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Pse0CgXuLXmNyc3Do4sv-IkQeGHBUVcH/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Scq50F0/Ayanami.png"/>
+
+<h1 align="center"># Ayanami [Gachi Hitsounds] <
+<align="center">Download: <a href="https://drive.google.com/file/d/1S0GwE0yYIgRTGMet1155eEhgkNJkI41-/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/h98jF4V/Ayanami-Gachi-Hitsounds.png"/>
+
 <h1 align="center"># Hitori Gotou - <
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BwsCkWz/Hitori-Gotou.png"/>
@@ -90,6 +98,10 @@
 <h1 align="center">[BY] Skadi Waverider NM (Arknights) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ex3z8gC39dp7f6hw7jPVJEgf0sHmii7c/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/64xLY2Y/BY-Skadi-Waverider-NM-Arknights.png"/>
+
+<h1 align="center">-               # Mrekk 〘 1.0 〙【NM】 <
+<align="center">Download: <a href="https://drive.google.com/file/d/15PysFu0ordtIQiVukezVaxDqUfIOPUJQ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/10CtbFG/Mrekk-1-0-NM.png"/>
 
 <h1 align="center">-_Reqs_Mirai_SZ <
 <align="center">Download: <a href="https://drive.google.com/file/d/17KXgIge8bilbiH6t2C2FTYFJW7TD_xOL/view?usp=sharing" target="_blank">Click</h1> 
@@ -130,6 +142,14 @@
 <h1 align="center">BlueLine UI v2.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fcJL-Rv0TbpyIaHiw2-2dJ5WD81-Le0i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/QXcN9G9/Blue-Line-UI-v2-2.png"/>
+
+<h1 align="center">boom 0524 edit <
+<align="center">Download: <a href="https://drive.google.com/file/d/1filXrW15gw5zVl3h7Xbt1Y1qoj3QN86q/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/fny6ZJL/boom-0524-edit.png"/>
+
+<h1 align="center">boom+0524+edit <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ZRyCkfT-RPRx7XSiqrKmfd5aWHa7FXKk/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/ngCRbrJ/boom-0524-edit.png"/>
 
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
@@ -275,6 +295,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/KrGSNGz/Rafis-XVarvalian.png"/>
 
+<h1 align="center">TURN MY OSU INTO A DUNGEON <
+<align="center">Download: <a href="https://drive.google.com/file/d/1iY4g8lkQbnwnJbR-QYGYkEjwjnNEMqf3/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/1Jkcr9k/TURN-MY-OSU-INTO-A-DUNGEON.png"/>
+
 <h1 align="center">-tvutsuloli (akolibed edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/N1dr8N3/tvutsuloli-akolibed-edit.png"/>
@@ -286,6 +310,10 @@
 <h1 align="center">Valorant Jett skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZyQuWdjclYAzsa89j-o2i4UuLZxV1TJb/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/7Xb6TW8/Valorant-Jett-skin.png"/>
+
+<h1 align="center">Varvalian 2019-06-25 <
+<align="center">Download: <a href="https://drive.google.com/file/d/159uDP1meQ2t9LCt87SIc1p52JkbkLrXI/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Y32sj6Q/Varvalian-2019-06-25.png"/>
 
 <h1 align="center">Vaxei 2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Q-gSUFZgoCAYg28vncdKx_-boK0FFG_A/view?usp=sharing" target="_blank">Click</h1> 
@@ -303,4 +331,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 72</h1>
+<h1 align="center">Количество скинов: 79</h1>
