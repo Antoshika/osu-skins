@@ -6,6 +6,14 @@
 <h1 align="center">-             #  『SPUTNIX-NM』 v1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lXiy9XGJm5JRI_CX5TPGHOGqcLUBJgpH/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/C62X4mK/SPUTNIX-NM-v1-1.png"/>
+ 
+<h1 align="center">-          #  Hatsune Miku - BiCute Bunnies  #  「SMZ」 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1zdco9gc2wxPjej6OiPGMmhnPiP5WntY4/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/XZmnRjW/Hatsune-Miku-Bi-Cute-Bunnies-SMZ.png"/>
+
+<h1 align="center">-         # Hatsune Miku 「Lunar Tempest」 - kirami <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ULgPkBACL6XobuJic_BbCKh79i8tA4xX/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/CsKJSs6/Hatsune-Miku-Lunar-Tempest-kirami.png"/>
 
 <h1 align="center">-         《CK》 Bacon boi 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
@@ -55,6 +63,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Pt3Gc1g/uwunasia.png"/>
 
+<h1 align="center">- #paper bullshnitn <
+<align="center">Download: <a href="https://drive.google.com/file/d/12pNh4oAWTOgBTUhup8Kz2uvlKioFUFVI/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/37cWgSP/paper-bullshnitn.png"/>
+
 <h1 align="center">- eLy's+Rika+Ichinose <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/z8YwD9q/e-Ly-s-Rika-Ichinose.png"/>
@@ -62,6 +74,10 @@
 <h1 align="center">- Epilogue - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vbwU5ylSNU6NM8bMj98pyzyb3Gzbov07/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/mGKcHT9/Epilogue.png"/>
+
+<h1 align="center">- Hatsune Miku Magical Mirai 2019 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1K45W-tyxqvzN_33ds5e91cYMAkhBB4kj/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/1sCSQ9d/Hatsune-Miku-Magical-Mirai-2019.png"/>
 
 <h1 align="center">- Seoul v11 Asta Edit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1S3IBjZ0ARTnPJ2KEUdacg2qb9t861rV3/view?usp=sharing" target="_blank">Click</h1> 
@@ -78,6 +94,14 @@
 <h1 align="center">!!!!!!!!!! - ⚝ Lady BERNKASTEL ⚝ BEBROVIK <
 <align="center">Download: <a href="https://drive.google.com/file/d/11ZepLELrAlDiAVZQIaOyRl7yNNkHt5nP/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/pyfjmXY/Lady-BERNKASTEL-BEBROVIK.png"/>
+
+<h1 align="center"># 『VOCALOID』 ~ Hatsune Miku [ 初音ミク ] DT <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Kh1pjjja_caiv-d3Ac9t5CxX_A1NU0KF/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/3dS7xHB/VOCALOID-Hatsune-Miku-DT.png"/>
+
+<h1 align="center"># 『VOCALOID』 ~ Hatsune Miku [ 初音ミク ] NM1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1GxdoYx_w-lGNG4Zfp6BzsI_V4wFzgNnt/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Mss2FmP/VOCALOID-Hatsune-Miku-NM1.png"/>
 
 <h1 align="center"># Ayanami <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Pse0CgXuLXmNyc3Do4sv-IkQeGHBUVcH/view?usp=sharing" target="_blank">Click</h1> 
@@ -331,4 +355,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 79</h1>
+<h1 align="center">Количество скинов: 85</h1>
