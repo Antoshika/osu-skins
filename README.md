@@ -65,7 +65,7 @@
 
 <h1 align="center">- #paper bullshnitn <
 <align="center">Download: <a href="https://drive.google.com/file/d/12pNh4oAWTOgBTUhup8Kz2uvlKioFUFVI/view?usp=sharing" target="_blank">Click</h1> 
-<img src=""/>
+<img src="https://i.ibb.co/37cWgSP/paper-bullshnitn.png"/>
 
 <h1 align="center">- eLy's+Rika+Ichinose <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
