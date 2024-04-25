@@ -57,7 +57,7 @@
 
 <h1 align="center">-    Talala-Chad ⩽ ninerik old ⩾ <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/FJ9Lf8T/Talala-Chad-ninerik-old.png"/>
+<img src=""/>
 
 <h1 align="center">- uwunasia <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
