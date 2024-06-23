@@ -203,6 +203,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1lR_ShoYY9NeHl9lVA9ZCWExp0garHhFw/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/CPptKWK/Bubble-Skin-Happy-Edit.png"/>
 
+<h1 align="center">CGs <
+<align="center">Download: <a href="https://drive.google.com/file/d/127YVFicvnDl0cDivbfGSkcFJaJUURdpU/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/MVB3wmR/CGs.png"/>
+
 <h1 align="center">Chroma <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UsiQRmyQUjOLHfW06HE0f32fx8prsV--/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/HTG6Ybp/Chroma.png"/>
@@ -351,6 +355,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1k87sTpa54OWIw3NErTZ-XRzawa8yqk9i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/yhWQ3Pz/Vaxei-2023.png"/>
 
+<h1 align="center">vaxei_hashtag <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Bym-zW72xu5thZi6-m_DaUm7jScv9iLD/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/ZgyG1Tp/vaxei-hashtag.png"/>
+
 <h1 align="center">xblue+rafishddt <
 <align="center">Download: <a href="https://drive.google.com/file/d/18UxvRpek4CNdxkz8DKX4J4Zm-9LIflvc/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Kz3zhsD/xblue-rafishddt.png"/>
@@ -359,4 +367,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 89</h1>
+<h1 align="center">Количество скинов: 91</h1>
