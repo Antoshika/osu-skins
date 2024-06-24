@@ -79,6 +79,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1K45W-tyxqvzN_33ds5e91cYMAkhBB4kj/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/5GMP0hg/Hatsune-Miku-Magical-Mirai-2019.png"/>
 
+<h1 align="center">- LineageOS - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1CYUIXMF-eri90ygj3IuW_M9O1E-Yq7Pk/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/FsKQBr6/Lineage-OS.png"/>
+
 <h1 align="center">- Seoul v11 Asta Edit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1S3IBjZ0ARTnPJ2KEUdacg2qb9t861rV3/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/myWKjTR/Seoul-v11-Asta-Edit.png"/>
@@ -142,6 +146,10 @@
 <h1 align="center">「Mio」 Windosu XP (Standard) [v2.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tbWLg3UiDQHEECB5SCuT0LNuLbP58g_N/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/mGs9Q1J/Mio-Windosu-XP-Standard-v2-1.png"/>
+
+<h1 align="center">「Phosphor」 [v1.1] <
+<align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/HYQd9hY/Phosphor-v1-1.png"/>
 
 <h1 align="center">antoshika 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1cDEobRq36cM-CUtbfjxGy2IHwBth575R/view?usp=sharing" target="_blank">Click</h1> 
@@ -367,4 +375,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 91</h1>
+<h1 align="center">Количество скинов: 93</h1>
