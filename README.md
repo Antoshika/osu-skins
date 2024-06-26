@@ -35,6 +35,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/19IhDr2OEpa5WDvzYVO6DHZ0NHEs2Xxd6/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/4g9CWs1/Nekomata-Okayu-A33-16-10-Non-Weeb.png"/>
 
+<h1 align="center">-        # re;owoTuna v1.1 『Selyu』 #        - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1-_I_cs-rJXC5xyX7r8cZwmSqMM2Zm8Yu/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vYBqH3v/re-owo-Tuna-v1-1-Selyu.png"/>
+
 <h1 align="center">-        # WhiteCat (1.0) 『CK』 #- <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Ok_qxkNfBiCeyVihDfi40BhzMsH62dx4/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/1RDDjSj/White-Cat-1-0-CK.png"/>
@@ -58,6 +62,10 @@
 <h1 align="center">-    Talala-Chad ⩽ ninerik old ⩾ <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/kDX0RyZ/Talala-Chad-ninerik-old.png"/>
+
+<h1 align="center">- # BTMC   ⌞Freedom Dive  ↓⌝ <
+<align="center">Download: <a href="https://drive.google.com/file/d/1WPmcp032JfzmFEP608Q8wNh-Y_XZSTOn/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/7zs4y92/BTMC-Freedom-Dive.png"/>
 
 <h1 align="center">- uwunasia <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
