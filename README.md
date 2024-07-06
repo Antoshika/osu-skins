@@ -299,6 +299,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1fu5ToFBY56az-Rhs1-VpXSxvAR1cX7FE/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BnbGvj3/Monko-Glass-Test.png"/>
 
+<h1 align="center">Moyai Balls <
+<align="center">Download: <a href="https://drive.google.com/file/d/1jCkfi5M-H0pLD642SIyfrFqAAE4ea6DN/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/jDjPXvM/Moyai-Balls.png"/>
+
 <h1 align="center">Nier A&R <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fOfL0CASNLJMBo7LRw8mfqbMDMr_BMSi/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/z8tjnjb/Nier-A-R.png"/>
@@ -383,4 +387,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 95</h1>
+<h1 align="center">Количество скинов: 96</h1>
