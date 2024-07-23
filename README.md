@@ -127,6 +127,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BwsCkWz/Hitori-Gotou.png"/>
 
+<h1 align="center">#azer8dawn <
+<align="center">Download: <a href="https://drive.google.com/file/d/1nw12WyjhGKbBzoJe0lIPQlGCeC_7BzmL/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/m61PTQj/azer8dawn.png"/>
+
 <h1 align="center">[# naeroK ] <
 <align="center">Download: <a href="https://drive.google.com/file/d/18l_0IlRZbjOI4ekfMfzWQ4_XQeXalZOQ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vP9xHY9/naero-K.png"/>
@@ -179,6 +183,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1eOywN5cIHmAfsJ2f43Fv5Ra04vYZkjTj/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/B6wMqqd/antoshika-1-4.png"/>
 
+<h1 align="center">Aristia(Edit) <
+<align="center">Download: <a href="https://drive.google.com/file/d/19-4CMhyI1h8DXwKjiIEgX0Hz_7hVOscc/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/HXNvXqy/Aristia-Edit.png"/>
+
+<h1 align="center">ASecretBox (Mathi new) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1UZTrCm8yx28QtHav1MMujGO7Y8ItY0Hl/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/PgFXQYb/ASecret-Box-Mathi-new.png"/>
+
 <h1 align="center">BlueLine UI v2.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fcJL-Rv0TbpyIaHiw2-2dJ5WD81-Le0i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/QXcN9G9/Blue-Line-UI-v2-2.png"/>
@@ -190,6 +202,10 @@
 <h1 align="center">boom+0524+edit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZRyCkfT-RPRx7XSiqrKmfd5aWHa7FXKk/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/ngCRbrJ/boom-0524-edit.png"/>
+
+<h1 align="center">boop <
+<align="center">Download: <a href="https://drive.google.com/file/d/1EdE5531qQBfprZl7yLOXaUk-qiPG7V-9/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/0BJdvQ4/boop.png"/>
 
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
@@ -255,6 +271,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Sn44w37/Duck-Leader-is-gud-player.png"/>
 
+<h1 align="center">EZChamp (-GN) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1J4jtwU7RraOqisJY-uH7hQAb-GTxEHtA/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/7N8Y0JJ/EZChamp-GN.png"/>
+
+<h1 align="center">FGSky+Shigetora <
+<align="center">Download: <a href="https://drive.google.com/file/d/1sJTnRWrQou7l2DQ3vNCyPr3VfNr2pJjn/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/NpX9yvv/FGSky-Shigetora.png"/>
+
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qLuBuEDh9nDVPz1EPh4aDFvIlFNDGbGS/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vLq1GN9/Hayase-Yuuka-worst-hr-player-edit.png"/>
@@ -271,9 +295,17 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1yCghIQKZAH99GGJhfVJW75DHb-Vk4520/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2FFGm0T/idke-2018-07-12.png"/>
 
+<h1 align="center">im bad (Kamui) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1FkqaEFKmvi4cZKX9uYCV6yEQ7Ld1ZaJn/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/2nD30Vz/im-bad-Kamui.png"/>
+
 <h1 align="center">JESUS <
 <align="center">Download: <a href="https://drive.google.com/file/d/1REpjWr1nvFMiTNdSVmb0O4z9D4UIjugU/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/z5kf1hd/JESUS.png"/>
+
+<h1 align="center">kablaze (11-Jan-2020) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1FJpSu7JaTeg0vv5yuZtMjeJdEWj8TDu1/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Kbm0R65/kablaze-11-Jan-2020.png"/>
 
 <h1 align="center">Lesta Games <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iE-FusmTCDieaKMtSi4RCHgh2FRNu9ax/view?usp=sharing" target="_blank">Click</h1> 
@@ -343,6 +375,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Z2sxxPH/Rafis-2018-03-26-HDDT-akolibed-edit-yellow-cursor.png"/>
 
+<h1 align="center">rafissss <
+<align="center">Download: <a href="https://drive.google.com/file/d/1JV4X6OCeRlHxV-Y1HtM8_goJAJiL7cUx/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/J5SvLqK/rafissss.png"/>
+
 <h1 align="center">RafisXVarvalian <
 <align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/KrGSNGz/Rafis-XVarvalian.png"/>
@@ -387,4 +423,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 96</h1>
+<h1 align="center">Количество скинов: 105</h1>
