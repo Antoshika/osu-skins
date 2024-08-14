@@ -423,4 +423,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 105</h1>
+<h1 align="center">Количество скинов: 109</h1>
