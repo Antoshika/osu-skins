@@ -21,7 +21,7 @@
 
 <h1 align="center">-         《CK》 WhiteCat 2.1 ~ old <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UNSYhMEmitoH7Pylug55mo7U54WX0LpQ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/JBgZQPx/CK-White-Cat-2-1-old.png"/>
+<img src="https://i.ibb.co/FJWFtRR/CK-White-Cat-2-1-old.png"/>
 
 <h1 align="center">-         《CK》 WhiteCat 3.0 ~ v3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/17-VrnnZCx6gFuq5zHDo6jSOLzphbIMHx/view?usp=sharing" target="_blank">Click</h1> 
@@ -393,11 +393,11 @@
 
 <h1 align="center">Rafis HDDT mrekk <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VDGxQZ_7xJQZSHWnDijcJ9vecnHtAwNf/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/zZn2RDF/Rafis-HDDT-mrekk.png"/>
+<img src="https://i.ibb.co/zsLKDQp/Rafis-HDDT-mrekk.png"/>
 
 <h1 align="center">Rafis HDDT mrekk (green-cursor) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qwWBPOZud3eZKJV4vzeJ8UP3aiji7azH/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/YjhrDR7/Rafis-HDDT-mrekk-green-cursor.png"/>
+<img src="https://i.ibb.co/JrDmdfz/Rafis-HDDT-mrekk-green-cursor.png"/>
 
 <h1 align="center">rafissss <
 <align="center">Download: <a href="https://drive.google.com/file/d/1JV4X6OCeRlHxV-Y1HtM8_goJAJiL7cUx/view?usp=sharing" target="_blank">Click</h1> 
@@ -409,7 +409,7 @@
 
 <h1 align="center">Sytho Alfie 1.2 (green-cursor) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jx2W_yU3GC8xs8y-0lcb9qUzlIUeJMt_/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/ZYF4k4C/Sytho-Alfie-1-2-green-cursor.png"/>
+<img src="https://i.ibb.co/ZghLRv8/Sytho-Alfie-1-2-green-cursor.png"/>
 
 <h1 align="center">TURN MY OSU INTO A DUNGEON <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iY4g8lkQbnwnJbR-QYGYkEjwjnNEMqf3/view?usp=sharing" target="_blank">Click</h1> 
