@@ -21,7 +21,7 @@
 
 <h1 align="center">-         《CK》 WhiteCat 2.1 ~ old <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UNSYhMEmitoH7Pylug55mo7U54WX0LpQ/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/FJWFtRR/CK-White-Cat-2-1-old.png"/>
+<img src="https://i.imgur.com/psm4CD7.png"/>
 
 <h1 align="center">-         《CK》 WhiteCat 3.0 ~ v3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/17-VrnnZCx6gFuq5zHDo6jSOLzphbIMHx/view?usp=sharing" target="_blank">Click</h1> 
