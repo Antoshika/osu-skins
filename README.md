@@ -19,6 +19,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/NK5wvCp/CK-Bacon-boi-1-0.png"/>
 
+<h1 align="center">-         《CK》 WhiteCat 2.1 ~ old <
+<align="center">Download: <a href="https://drive.google.com/file/d/1UNSYhMEmitoH7Pylug55mo7U54WX0LpQ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/JBgZQPx/CK-White-Cat-2-1-old.png"/>
+
 <h1 align="center">-         《CK》 WhiteCat 3.0 ~ v3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/17-VrnnZCx6gFuq5zHDo6jSOLzphbIMHx/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/gmWqdz4/CK-White-Cat-3-0-v3.png"/>
@@ -387,6 +391,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Z2sxxPH/Rafis-2018-03-26-HDDT-akolibed-edit-yellow-cursor.png"/>
 
+<h1 align="center">Rafis HDDT mrekk <
+<align="center">Download: <a href="https://drive.google.com/file/d/1VDGxQZ_7xJQZSHWnDijcJ9vecnHtAwNf/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/zZn2RDF/Rafis-HDDT-mrekk.png"/>
+
+<h1 align="center">Rafis HDDT mrekk (green-cursor) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1qwWBPOZud3eZKJV4vzeJ8UP3aiji7azH/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/YjhrDR7/Rafis-HDDT-mrekk-green-cursor.png"/>
+
 <h1 align="center">rafissss <
 <align="center">Download: <a href="https://drive.google.com/file/d/1JV4X6OCeRlHxV-Y1HtM8_goJAJiL7cUx/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/J5SvLqK/rafissss.png"/>
@@ -394,6 +406,10 @@
 <h1 align="center">RafisXVarvalian <
 <align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/KrGSNGz/Rafis-XVarvalian.png"/>
+
+<h1 align="center">Sytho Alfie 1.2 (green-cursor) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1jx2W_yU3GC8xs8y-0lcb9qUzlIUeJMt_/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/ZYF4k4C/Sytho-Alfie-1-2-green-cursor.png"/>
 
 <h1 align="center">TURN MY OSU INTO A DUNGEON <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iY4g8lkQbnwnJbR-QYGYkEjwjnNEMqf3/view?usp=sharing" target="_blank">Click</h1> 
@@ -439,4 +455,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 109</h1>
+<h1 align="center">Количество скинов: 113</h1>
