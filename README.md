@@ -73,7 +73,7 @@
 
 <h1 align="center">- uwunasia <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/Pt3Gc1g/uwunasia.png"/>
+<img src="https://i.imgur.com/cwCk07c.png"/>
 
 <h1 align="center">- #paper bullshnitn <
 <align="center">Download: <a href="https://drive.google.com/file/d/12pNh4oAWTOgBTUhup8Kz2uvlKioFUFVI/view?usp=sharing" target="_blank">Click</h1> 
@@ -141,7 +141,7 @@
 
 <h1 align="center">[BY] Skadi Waverider NM (Arknights) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ex3z8gC39dp7f6hw7jPVJEgf0sHmii7c/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/64xLY2Y/BY-Skadi-Waverider-NM-Arknights.png"/>
+<img src="https://i.imgur.com/8ySLIWr.png"/>
 
 <h1 align="center">-               # Mrekk 〘 1.0 〙【NM】 <
 <align="center">Download: <a href="https://drive.google.com/file/d/15PysFu0ordtIQiVukezVaxDqUfIOPUJQ/view?usp=sharing" target="_blank">Click</h1> 
@@ -165,7 +165,7 @@
 
 <h1 align="center">「Phosphor」 [v1.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/HYQd9hY/Phosphor-v1-1.png"/>
+<img src="https://i.imgur.com/ngzIEAs.png"/>
 
 <h1 align="center">antoshika 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1cDEobRq36cM-CUtbfjxGy2IHwBth575R/view?usp=sharing" target="_blank">Click</h1> 
@@ -177,7 +177,7 @@
 
 <h1 align="center">antoshika 1.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1zl7ymSIyZgfJXE6PqGGpPHGeyk8cuh5_/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/dMVXpWG/antoshika-1-2.png"/>
+<img src="https://i.imgur.com/g6xban4.png"/>
 
 <h1 align="center">antoshika 1.3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1t2BwH_T15aK0eXpwiY_pNRJvQzotLOX7/view?usp=sharing" target="_blank">Click</h1> 
@@ -257,7 +257,7 @@
 
 <h1 align="center">Clear Futuristic Miku 2.0 M <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iB7TG1yjzj6E4TvWcIHZHkkAViTIq7f5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/rGPz1fb/Clear-Futuristic-Miku-2-0-M.png"/>
+<img src="https://i.imgur.com/5Rr7hOc.png"/>
 
 <h1 align="center">Cookiezi 15.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/14DPQosww2wwV4uk3VS-_F0VBn5VHOFVK/view?usp=sharing" target="_blank">Click</h1> 
@@ -333,7 +333,7 @@
 
 <h1 align="center">MINECRAFT KRUGI <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Tn7FjNJcJ2t2h3T8TapUWFGIHuY3zXWM/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/sFLFKN1/MINECRAFT-KRUGI.png"/>
+<img src="https://i.imgur.com/CIg4R07.png"/>
 
 <h1 align="center">MonkoEdit <
 <align="center">Download: <a href="https://drive.google.com/file/d/17uKp32iK6oduHClBlWNLZWQM1GF6ZdY9/view?usp=sharing" target="_blank">Click</h1> 
@@ -433,11 +433,11 @@
 
 <h1 align="center">Vaxei 2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Q-gSUFZgoCAYg28vncdKx_-boK0FFG_A/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/yhWQ3Pz/Vaxei-2023.png"/>
+<img src="https://i.imgur.com/WSgDAQ0.png"/>
 
 <h1 align="center">Vaxei 2023 [Chu Hitsounds] <
 <align="center">Download: <a href="https://drive.google.com/file/d/1k87sTpa54OWIw3NErTZ-XRzawa8yqk9i/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/yhWQ3Pz/Vaxei-2023.png"/>
+<img src="https://i.imgur.com/WSgDAQ0.png"/>
 
 <h1 align="center">vaxei_hashtag <
 <align="center">Download: <a href="https://drive.google.com/file/d/1Bym-zW72xu5thZi6-m_DaUm7jScv9iLD/view?usp=sharing" target="_blank">Click</h1> 
