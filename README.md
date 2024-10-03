@@ -167,6 +167,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/ngzIEAs.png"/>
 
+<h1 align="center">a skin of mine (NMHD) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1euXXkgvjLgWWqpkVFwoFXonAtvSqRMHs/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/w0CC5y7/a-skin-of-mine-NMHD.png"/>
+
+<h1 align="center">alfie_dt_fancy <
+<align="center">Download: <a href="https://drive.google.com/file/d/1QdtV4SYUndJQue-YTsktpgqxS5xtOrgO/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/xg9kcCW/alfie-dt-fancy.png"/>
+
 <h1 align="center">antoshika 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1cDEobRq36cM-CUtbfjxGy2IHwBth575R/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/By5C6Xc/antoshika-1-0.png"/>
@@ -195,6 +203,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/19-4CMhyI1h8DXwKjiIEgX0Hz_7hVOscc/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/HXNvXqy/Aristia-Edit.png"/>
 
+<h1 align="center">Aristia(Edit (Mistya)) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1hVywk7zD2Qnehh3cF8Z4T0txt65dA6YN/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/3W9ZgP8/Aristia-Edit-Mistya.png"/>
+
 <h1 align="center">azerino2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1hHD7jyg41o-vP7JIT99yTSeTjrIWYCxy/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/23ZyXzM/azerino2023.png"/>
@@ -206,6 +218,10 @@
 <h1 align="center">BlueLine UI v2.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fcJL-Rv0TbpyIaHiw2-2dJ5WD81-Le0i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/QXcN9G9/Blue-Line-UI-v2-2.png"/>
+
+<h1 align="center">BOCCHI THE ROCK! <
+<align="center">Download: <a href="https://drive.google.com/file/d/1lRQcPGKSVPxA7h7PvyBizieWqSl9P-EN/view?usp=sharing target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Xp4Gzhq/BOCCHI-THE-ROCK.png"/>
 
 <h1 align="center">boom 0524 edit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1filXrW15gw5zVl3h7Xbt1Y1qoj3QN86q/view?usp=sharing" target="_blank">Click</h1> 
@@ -250,6 +266,10 @@
 <h1 align="center">CGs - v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/127YVFicvnDl0cDivbfGSkcFJaJUURdpU/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/MVB3wmR/CGs.png"/>
+
+<h1 align="center">CGs - Gachi v1.1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1-toKGS-OrkROH3W8iJFOv6Acg46mtwZy/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/0MXw2Sv/CGs-Gachi-v1-1.png"/>
 
 <h1 align="center">Chroma <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UsiQRmyQUjOLHfW06HE0f32fx8prsV--/view?usp=sharing" target="_blank">Click</h1> 
