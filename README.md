@@ -247,7 +247,7 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1lR_ShoYY9NeHl9lVA9ZCWExp0garHhFw/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/CPptKWK/Bubble-Skin-Happy-Edit.png"/>
 
-<h1 align="center">CGs <
+<h1 align="center">CGs - v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/127YVFicvnDl0cDivbfGSkcFJaJUURdpU/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/MVB3wmR/CGs.png"/>
 
