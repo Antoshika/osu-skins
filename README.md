@@ -147,6 +147,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/15PysFu0ordtIQiVukezVaxDqUfIOPUJQ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/10CtbFG/Mrekk-1-0-NM.png"/>
 
+<h1 align="center">_neckpainEDIT v1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/16Y_ptuZHZTOsni2-P1F1hdGvWjIgHg4u/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/t3rhxvK/neckpain-EDIT-v1.png"/>
+
+<h1 align="center">_neckpainEDIT v2 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1wGMnebor7tdCE7xQZu1FkQqsFuDgmwRx/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Sr708BX/neckpain-EDIT-v2.png"/>
+
 <h1 align="center">-_Reqs_Mirai_SZ <
 <align="center">Download: <a href="https://drive.google.com/file/d/17KXgIge8bilbiH6t2C2FTYFJW7TD_xOL/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/H7pMN2g/Reqs-Mirai-SZ.png"/>
@@ -235,6 +243,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1EdE5531qQBfprZl7yLOXaUk-qiPG7V-9/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/0BJdvQ4/boop.png"/>
 
+<h1 align="center">boop_modified <
+<align="center">Download: <a href="https://drive.google.com/file/d/1X9meJ5KoIrCc3lxCiuZ-_5T2i909KClE/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/khZphYN/boop-modified.png"/>
+
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BsGKwzY/bowdown.png"/>
@@ -291,6 +303,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1oCwrJvQf0er8EZORdqOwxPEuokz3i309/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/WyzcRBY/CS-Skin-ver-6-9-DUB-Edition-Remix.png"/>
 
+<h1 align="center">david 3 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1RV3tqLM5aHVixd1E49lrzmvYXScAhvb0/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/mXXBZCq/david-3.png"/>
+
+<h1 align="center">david 3.5 Afterlight- <
+<align="center">Download: <a href="https://drive.google.com/file/d/10aqLuV4wUOhwxSmb_PA5R35W7lC2sy8D/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/YPMKwyq/david-3-5-Afterlight.png"/>
+
 <h1 align="center">DefinitelyNotRGB <
 <align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/d0qK1R9/Definitely-Not-RGB.png"/>
@@ -302,6 +322,14 @@
 <h1 align="center">DuckLeader is gud player <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Sn44w37/Duck-Leader-is-gud-player.png"/>
+
+<h1 align="center">EKORO SKIN PLAYABLE (_neckpain x Eros) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1y1GqUHStetY2Y3ao7BJbdIq2JBhaqVM2/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/YT3SkLp/EKORO-SKIN-PLAYABLE-neckpain-x-Eros.png"/>
+
+<h1 align="center">ekoroknight (TabletKnight x _neckpain) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1cBNaRzNeXF5cgzyPOPEDl4Pg6GfjLJxG/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/VxPv52T/ekoroknight-Tablet-Knight-x-neckpain.png"/>
 
 <h1 align="center">EZChamp (-GN) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1J4jtwU7RraOqisJY-uH7hQAb-GTxEHtA/view?usp=sharing" target="_blank">Click</h1> 
@@ -383,6 +411,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1wVPBK1CDt9JyWxo994q9dGdMskKzEZaB/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/7WSs43c/osu-miku.png"/>
 
+<h1 align="center">painy hands (_neckpain 2022) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1qVAmXLBqcfoKVYkb706_SpBMfLI8eG6W/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/gMxFtXR/painy-hands-neckpain-2022.png"/>
+
 <h1 align="center">Plz Enjoy Game 10-08-17 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tK46FLBb9ss7il5f2GdgsZF9asTsWbGt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/cvxytZW/Plz-Enjoy-Game-10-08-17.png"/>
@@ -431,6 +463,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1jx2W_yU3GC8xs8y-0lcb9qUzlIUeJMt_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/GkVL8bt.png"/>
 
+<h1 align="center">tabletknight old edit (_neckpain x Eros) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1HmLeNS56AKjl8Nib1nXVTRL-PsH8nRTr/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/VQdzJPL/tabletknight-old-edit-neckpain-x-Eros.png"/>
+
 <h1 align="center">TURN MY OSU INTO A DUNGEON <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iY4g8lkQbnwnJbR-QYGYkEjwjnNEMqf3/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/1Jkcr9k/TURN-MY-OSU-INTO-A-DUNGEON.png"/>
@@ -475,4 +511,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 118</h1>
+<h1 align="center">Количество скинов: 127</h1>
