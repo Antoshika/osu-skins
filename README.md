@@ -6,7 +6,19 @@
 <h1 align="center">-             #  『SPUTNIX-NM』 v1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lXiy9XGJm5JRI_CX5TPGHOGqcLUBJgpH/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/C62X4mK/SPUTNIX-NM-v1-1.png"/>
- 
+
+<h1 align="center">-             #HatsuneMiku (1.0) [Neumann] # <
+<align="center">Download: <a href="https://drive.google.com/file/d/1hHkYo72qMfJ9DCsuAT-CFUcZcP2ZuCkw/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/rQLQb4D/Hatsune-Miku-1-0-Neumann.png"/>
+
+<h1 align="center">-             Teto's Territory [NM]            - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1J06zCs0cGPiffEdRDFEnu9pCy_-_AgVv/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/ft0MSXr/Teto-s-Territory-NM.png"/>
+
+<h1 align="center">-            #  [ CINNAMON normal ] <
+<align="center">Download: <a href="https://drive.google.com/file/d/13vRM26WynAFQk2Xi44WyTuUIdmguhRk-/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/QX7PX6M/CINNAMON-normal.png"/>
+
 <h1 align="center">-          #  Hatsune Miku - BiCute Bunnies  #  「SMZ」 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1zdco9gc2wxPjej6OiPGMmhnPiP5WntY4/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/XZmnRjW/Hatsune-Miku-Bi-Cute-Bunnies-SMZ.png"/>
@@ -75,9 +87,21 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1bBIUn9PxBlvDI9zZunvwrjQLHGL3jBD5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/cwCk07c.png"/>
 
+<h1 align="center">-   ( #mikuWinter )   - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1kbSDN9ampORvtEDJlEw998NF6cddeWWC/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/rf3JJKZ/miku-Winter.png"/>
+
+<h1 align="center">- #Citrusis • Windosu! <
+<align="center">Download: <a href="https://drive.google.com/file/d/17Uv5Um060jkp720NqBgOrdaMIsIPd43O/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/frC72jH/Citrusis-Windosu.png"/>
+
 <h1 align="center">- #paper bullshnitn <
 <align="center">Download: <a href="https://drive.google.com/file/d/12pNh4oAWTOgBTUhup8Kz2uvlKioFUFVI/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/XbLZW5d/paper-bullshnitn.png"/>
+
+<h1 align="center">- 39 - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1TmSo1d_SzIEz2WCXaund6-rwsI0fOQsZ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/d2LJxWH/39.png"/>
 
 <h1 align="center">- eLy's+Rika+Ichinose <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
@@ -175,6 +199,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/ngzIEAs.png"/>
 
+<h1 align="center">↑The Game of Life↓ ft. Hatsune Miku <
+<align="center">Download: <a href="https://drive.google.com/file/d/1DFPCHUhsfca4Nf1WvaSJWSedb1B_8xdl/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vc4QgNN/The-Game-of-Life-ft-Hatsune-Miku.png"/>
+
+<h1 align="center">01 Vocaloid by HalfPinter v.1.02 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1YIgxP4Pk8-sByQdS4nLxhiXoEaO7OdWQ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/qYtfmsv/01-Vocaloid-by-Half-Pinter-v-1-02.png"/>
+
 <h1 align="center">a skin of mine (NMHD) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1euXXkgvjLgWWqpkVFwoFXonAtvSqRMHs/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/w0CC5y7/a-skin-of-mine-NMHD.png"/>
@@ -218,6 +250,10 @@
 <h1 align="center">azerino2023 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1hHD7jyg41o-vP7JIT99yTSeTjrIWYCxy/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/23ZyXzM/azerino2023.png"/>
+
+<h1 align="center">Azure <
+<align="center">Download: <a href="https://drive.google.com/file/d/1d90Lun0aWstFehPLAUCup4RxXwkO7FL4/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/b3y60b0/Azure.png"/>
 
 <h1 align="center">ASecretBox (Mathi new) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UZTrCm8yx28QtHav1MMujGO7Y8ItY0Hl/view?usp=sharing" target="_blank">Click</h1> 
@@ -291,6 +327,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1iB7TG1yjzj6E4TvWcIHZHkkAViTIq7f5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/5Rr7hOc.png"/>
 
+<h1 align="center">Cookiezi (Old) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1eJoaOuutu3ojLs0Q8saB26tLEwsVOhAU/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/XFvm5Dw/Cookiezi-Old.png"/>
+
+<h1 align="center">Cookiezi 03 xxxx-2013 Kamui <
+<align="center">Download: <a href="https://drive.google.com/file/d/1okZ8mrumJRW9KTcgj_VIvdSw8OHphkEE/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/wgnms4S/Cookiezi-03-xxxx-2013-Kamui.png"/>
+
 <h1 align="center">Cookiezi 15.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/14DPQosww2wwV4uk3VS-_F0VBn5VHOFVK/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/fdZTSbS/Cookiezi-15-1.png"/>
@@ -331,6 +375,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1cBNaRzNeXF5cgzyPOPEDl4Pg6GfjLJxG/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/VxPv52T/ekoroknight-Tablet-Knight-x-neckpain.png"/>
 
+<h1 align="center">ENE06 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1e1ZR9L8ZGyxLeR4zXgDLCMnhHwtAt7Q3/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/yfXS8C3/ENE06.png"/>
+
 <h1 align="center">EZChamp (-GN) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1J4jtwU7RraOqisJY-uH7hQAb-GTxEHtA/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/7N8Y0JJ/EZChamp-GN.png"/>
@@ -339,9 +387,37 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1sJTnRWrQou7l2DQ3vNCyPr3VfNr2pJjn/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/NpX9yvv/FGSky-Shigetora.png"/>
 
+<h1 align="center">GfMRT 2019-12-14 <
+<align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/4VBjYW1/Gf-MRT-2019-12-14.png"/>
+
+<h1 align="center">Ghost Rule - v18072023 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1YdDwZ8SKdbRzgIaruDD-r9rmgGb-P0AL/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/wh0byqW/Ghost-Rule-v18072023.png"/>
+
+<h1 align="center">GigaChad official <
+<align="center">Download: <a href="https://drive.google.com/file/d/1gYf5ZDJFtumc1pTvOsIK7K9F8rFCpHCy/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/cDp8qxJ/Giga-Chad-official.png"/>
+
+<h1 align="center">Hatsune Miku Bluz <
+<align="center">Download: <a href="https://drive.google.com/file/d/1p83sTmq0RSQyYdmI0dMJ-JZmNdfBTt0k/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/RB9m20p/Hatsune-Miku-Bluz.png"/>
+
+<h1 align="center">Hatsune Miku Glow <
+<align="center">Download: <a href="https://drive.google.com/file/d/12_q0UMsmqNPOTR4Txa_8b568Vr1Vrlyv/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/BwnZH3V/Hatsune-Miku-Glow.png"/>
+
+<h1 align="center">HatsuneMiku v1.4 <
+<align="center">Download: <a href="https://drive.google.com/file/d/12PQqZ3G2prQL9WrUqo0YmF45JEUFQ-lE/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/ydqJHxP/Hatsune-Miku-v1-4.png"/>
+
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qLuBuEDh9nDVPz1EPh4aDFvIlFNDGbGS/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vLq1GN9/Hayase-Yuuka-worst-hr-player-edit.png"/>
+
+<h1 align="center">HMT v1.7.2 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1iAbwwRXIAwQtEmXw2Gj5jittoph9pF-q/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/60gCVPX/HMT-v1-7-2.png"/>
 
 <h1 align="center">Ichika Manga skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1W8C92dklkz8QkBdpA7nfTZ-liMvcp0Bc/view?usp=sharing" target="_blank">Click</h1> 
@@ -395,6 +471,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1fu5ToFBY56az-Rhs1-VpXSxvAR1cX7FE/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BnbGvj3/Monko-Glass-Test.png"/>
 
+<h1 align="center">MouseEasy 17-08-23 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1RH5PzYrUMOab89_lwC-H0AWOS_to_DK0/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/1fCHtw5/Mouse-Easy-17-08-23.png"/>
+
 <h1 align="center">Moyai Balls <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jCkfi5M-H0pLD642SIyfrFqAAE4ea6DN/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/jDjPXvM/Moyai-Balls.png"/>
@@ -406,7 +486,15 @@
 <h1 align="center">osu! color <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fh3Bfp-weOS7aY1M35t-yCkDBIjrs5zT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/sHtbMxr/osu-color.png"/>
-  
+
+<h1 align="center">OSU! Lazer <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Dnj8I5OD-zF_q_cbzdCOQ0mY38aQcwqz/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/SXgVdNx/OSU-Lazer.png"/>
+
+<h1 align="center">OSU! Lazer 2018.406.0 by DP05 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1wyIRXqgPyaNirGGQNY7MNQF3jR3j6Bgm/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/G9XfNGf/OSU-Lazer-2018-406-0-by-DP05.png"/>
+ 
 <h1 align="center">osu! miku (edit by antoshika) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1wVPBK1CDt9JyWxo994q9dGdMskKzEZaB/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/7WSs43c/osu-miku.png"/>
@@ -414,6 +502,14 @@
 <h1 align="center">painy hands (_neckpain 2022) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qVAmXLBqcfoKVYkb706_SpBMfLI8eG6W/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/gMxFtXR/painy-hands-neckpain-2022.png"/>
+
+<h1 align="center">pen, paper, marker <
+<align="center">Download: <a href="https://drive.google.com/file/d/1MrkqJBmDTPxTQbfwhe5uwzTSplkELVD4/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/G5qxvKW/pen-paper-marker.png"/>
+
+<h1 align="center">PINKOUT DX <
+<align="center">Download: <a href="https://drive.google.com/file/d/1HA5RGrMQ31oONY3K47I4CjDnt07JEu3c/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/XxSPscB/PINKOUT-DX.png"/>
 
 <h1 align="center">Plz Enjoy Game 10-08-17 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tK46FLBb9ss7il5f2GdgsZF9asTsWbGt/view?usp=sharing" target="_blank">Click</h1> 
@@ -459,6 +555,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1A9UZvJ0g_xJ43k_pmZtk4j1uCrNGTZ87/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/KrGSNGz/Rafis-XVarvalian.png"/>
 
+<h1 align="center">rrtyui 2017-08-10 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1jiTsS344EGEVv8j9xnPEAcaS2orW2gT5/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vqCx36q/rrtyui-2017-08-10.png"/>
+
 <h1 align="center">Sytho Alfie 1.2 (green-cursor) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jx2W_yU3GC8xs8y-0lcb9qUzlIUeJMt_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/GkVL8bt.png"/>
@@ -467,6 +567,18 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1HmLeNS56AKjl8Nib1nXVTRL-PsH8nRTr/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/VQdzJPL/tabletknight-old-edit-neckpain-x-Eros.png"/>
 
+<h1 align="center">talala-2017-08-10 <
+<align="center">Download: <a href="https://drive.google.com/file/d/10YtImGFZkHlfFP-Wzu3euBjCUWZXBlIN/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/b5srXgs/talala-2017-08-10.png"/>
+
+<h1 align="center">The Emoji Skin 2017-12-08 <
+<align="center">Download: <a href="https://drive.google.com/file/d/12VcElEZcGPlrLTxIIpO39kMUtpM1lKDD/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/y4YDjss/The-Emoji-Skin-2017-12-08.png"/>
+
+<h1 align="center">Trans 1.1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1j2N0tXwo_9BziZcIJ1iGRJVPAvkV3Gu0/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/NCzxGnV/Trans-1-1.png"/>
+
 <h1 align="center">TURN MY OSU INTO A DUNGEON <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iY4g8lkQbnwnJbR-QYGYkEjwjnNEMqf3/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/1Jkcr9k/TURN-MY-OSU-INTO-A-DUNGEON.png"/>
@@ -474,6 +586,10 @@
 <h1 align="center">-tvutsuloli (akolibed edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1H2UsQ9ysKR03Vx6UMxpndua6DLmqZiaT/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/N1dr8N3/tvutsuloli-akolibed-edit.png"/>
+
+<h1 align="center">ULTIMATE PP FARMER SKIN <
+<align="center">Download: <a href="https://drive.google.com/file/d/1BhlnCaXM_GDXFstJmZ0sQ4p29rx-uDIa/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Xy7VZrh/ULTIMATE-PP-FARMER-SKIN.png"/>
 
 <h1 align="center">Vaic-C-1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1CJ9nkD8sfEnjvhWRS-k5AuuZnIoAS49y/view?usp=sharing" target="_blank">Click</h1> 
@@ -503,12 +619,20 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1F33w6xp6J5D7bmGNbJAMBZ9r86Q3HfVm/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/82wQK04/WATSAP.png"/>
 
+<h1 align="center">WindowsXD <
+<align="center">Download: <a href="https://drive.google.com/file/d/1bfLzPgbnjsYiprSIV56I3KJWd6byifCA/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Y0Vs448/Windows-XD.png"/>
+
 <h1 align="center">xblue+rafishddt <
 <align="center">Download: <a href="https://drive.google.com/file/d/18UxvRpek4CNdxkz8DKX4J4Zm-9LIflvc/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Kz3zhsD/xblue-rafishddt.png"/>
+
+<h1 align="center">Yet Another Miku Skin <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ZqGfUPvpue4FMkxTl6F2DVoHEWDSJP2q/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/2g5mWyp/Yet-Another-Miku-Skin.png"/>
 
 <h1 align="center">茗猫 - Silver <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 127</h1>
+<h1 align="center">Количество скинов: 158</h1>
