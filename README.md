@@ -263,8 +263,12 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1fcJL-Rv0TbpyIaHiw2-2dJ5WD81-Le0i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/QXcN9G9/Blue-Line-UI-v2-2.png"/>
 
+<h1 align="center">bocchi x siina (skin mix) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1LwiJHtpA8c5oWHoqznw2qFD-onZ-lmsj/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/D4qd8fL/bocchi-x-siina-skin-mix.png"/>
+
 <h1 align="center">BOCCHI THE ROCK! <
-<align="center">Download: <a href="https://drive.google.com/file/d/1lRQcPGKSVPxA7h7PvyBizieWqSl9P-EN/view?usp=sharing target="_blank">Click</h1> 
+<align="center">Download: <a href="https://drive.google.com/file/d/1lRQcPGKSVPxA7h7PvyBizieWqSl9P-EN/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Xp4Gzhq/BOCCHI-THE-ROCK.png"/>
 
 <h1 align="center">boom 0524 edit <
@@ -362,6 +366,14 @@
 <h1 align="center">doki_mix_3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1_Ce2dMJEBMdiZFTa95z_I39SFnlr7-LR/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/GTqNgYk/doki-mix-3.png"/>
+
+<h1 align="center">dt mix blue <
+<align="center">Download: <a href="https://drive.google.com/file/d/15_YYnhzKkfuHrMHs5MV4TPIcpoStD9uY/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/686SFsV/dt-mix-blue.png"/>
+
+<h1 align="center">dt mix white <
+<align="center">Download: <a href="https://drive.google.com/file/d/1vasCMvDLk03DUc2R16OgX5Z1OxuMlcGF/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Gs84cpy/dt-mix-white.png"/>
 
 <h1 align="center">DuckLeader is gud player <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lr-NCzg440k-5GOPUh6y_M49UZczjUHt/view?usp=sharing" target="_blank">Click</h1> 
@@ -635,4 +647,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 158</h1>
+<h1 align="center">Количество скинов: 161</h1>
