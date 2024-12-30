@@ -47,6 +47,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/10A7_ezYWIyC1WOkWl7h7TBBZT5gfn8O4/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/0q2Sh5n/aesthetic-v-Azurlane1-0.png"/>
 
+<h1 align="center">-         deskmat  v1  ✨  ck <
+<align="center">Download: <a href="https://drive.google.com/file/d/1M2Qo2nSQ20-fY28sPsDJMRGTe9RzSeGv/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/TKgCXH7/deskmat-v1-ck.png"/>
+
 <h1 align="center">-         Nekomata Okayu [A33] 16_10 Non-Weeb <
 <align="center">Download: <a href="https://drive.google.com/file/d/19IhDr2OEpa5WDvzYVO6DHZ0NHEs2Xxd6/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/4g9CWs1/Nekomata-Okayu-A33-16-10-Non-Weeb.png"/>
@@ -90,6 +94,14 @@
 <h1 align="center">-   ( #mikuWinter )   - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1kbSDN9ampORvtEDJlEw998NF6cddeWWC/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/rf3JJKZ/miku-Winter.png"/>
+
+<h1 align="center">-  {S}  FREEDOM DiVE REiMAGINED <
+<align="center">Download: <a href="https://drive.google.com/file/d/1fEKGFT7QrTf1Xnz4acfUiifHl7U5p6IE/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vw9X1D4/S-FREEDOM-Di-VE-REi-MAGINED.png"/>
+
+<h1 align="center">- !Sad Cookie <
+<align="center">Download: <a href="https://drive.google.com/file/d/1kVyZYyjgB6YuyWVwfSXk6JzFXCV3bPbS/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/x1ncJvx/Sad-Cookie.png"/>
 
 <h1 align="center">- #Citrusis • Windosu! <
 <align="center">Download: <a href="https://drive.google.com/file/d/17Uv5Um060jkp720NqBgOrdaMIsIPd43O/view?usp=sharing" target="_blank">Click</h1> 
@@ -158,6 +170,14 @@
 <h1 align="center">#azer8dawn <
 <align="center">Download: <a href="https://drive.google.com/file/d/1nw12WyjhGKbBzoJe0lIPQlGCeC_7BzmL/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/m61PTQj/azer8dawn.png"/>
+
+<h1 align="center">- JesusOmega {NM} 『Planets』 - <
+<align="center">Download: <a href="https://drive.google.com/file/d/169YGgUqePDTkfPeuqJ6kiDlvkrVd9bY5/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vhmgxJb/Jesus-Omega-NM-Planets.png"/>
+
+<h1 align="center">-      # owoTuna {1.4} 『Mathi』 #      - <
+<align="center">Download: <a href="https://drive.google.com/file/d/1EcqnBJQl0ytdVv5Q15rq01oaAeNwuvaa/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/6PbcF0t/owo-Tuna-1-4-Mathi.png"/>
 
 <h1 align="center">[# naeroK ] <
 <align="center">Download: <a href="https://drive.google.com/file/d/18l_0IlRZbjOI4ekfMfzWQ4_XQeXalZOQ/view?usp=sharing" target="_blank">Click</h1> 
@@ -471,6 +491,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1Tn7FjNJcJ2t2h3T8TapUWFGIHuY3zXWM/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/CIg4R07.png"/>
 
+<h1 align="center">Minimal Weeb - Noel v1.2 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Pv8_tUincJaWx3DufLOgln-fkex8LbFY/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Jzspvw7/Minimal-Weeb-Noel-v1-2.png"/>
+
 <h1 align="center">MonkoEdit <
 <align="center">Download: <a href="https://drive.google.com/file/d/17uKp32iK6oduHClBlWNLZWQM1GF6ZdY9/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/xGk0NQB/Monko-Edit.png"/>
@@ -647,4 +671,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 161</h1>
+<h1 align="center">Количество скинов: 167</h1>
