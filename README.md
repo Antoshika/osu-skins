@@ -422,6 +422,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1sJTnRWrQou7l2DQ3vNCyPr3VfNr2pJjn/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/NpX9yvv/FGSky-Shigetora.png"/>
 
+<h1 align="center">fwootable DT (Zylice Edit) <
+<align="center">Download: <a href="https://drive.google.com/file/d/14NyyFMxxMVfM0NvUbY3n93VqG22wYBN9/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/5htDrhLJ/fwootable-DT-Zylice-Edit.png"/>
+
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/4VBjYW1/Gf-MRT-2019-12-14.png"/>
@@ -578,6 +582,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZsDWXUs_2I-OJtuHWlvx9_5RHrqcFL8f/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Z2sxxPH/Rafis-2018-03-26-HDDT-akolibed-edit-yellow-cursor.png"/>
 
+<h1 align="center">Rafis but Zylice <
+<align="center">Download: <a href="https://drive.google.com/file/d/1bf9jtKnlBV4uLz55mQfwPNroAQTnKRZh/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/kVFHCmNV/Rafis-but-Zylice.png"/>
+
 <h1 align="center">Rafis HDDT mrekk <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VDGxQZ_7xJQZSHWnDijcJ9vecnHtAwNf/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/cjR43V4.png"/>
@@ -597,6 +605,10 @@
 <h1 align="center">rrtyui 2017-08-10 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jiTsS344EGEVv8j9xnPEAcaS2orW2gT5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vqCx36q/rrtyui-2017-08-10.png"/>
+
+<h1 align="center">RYUKAYYYY MONKOOO <
+<align="center">Download: <a href="https://drive.google.com/file/d/1C5neJbyfHMUCY-UR741Nc7q8uvPDJzuF/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/sv9g5MC3/RYUKAYYYY-MONKOOO.png"/>
 
 <h1 align="center">somebody_33 Release v5.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ON0_NzcREhgOm_D6HP1TzT8dJx0Ho2pm/view?usp=sharing" target="_blank">Click</h1> 
@@ -674,8 +686,12 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZqGfUPvpue4FMkxTl6F2DVoHEWDSJP2q/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2g5mWyp/Yet-Another-Miku-Skin.png"/>
 
+<h1 align="center">Zylice Skin Mix (2024) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1YrHA2npw9WFNMDGI2XMHkyjjHc1goeo9/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/6JPhtMt6/Zylice-Skin-Mix-2024.png"/>
+
 <h1 align="center">茗猫 - Silver <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 168</h1>
+<h1 align="center">Количество скинов: 172</h1>
