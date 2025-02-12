@@ -76,7 +76,7 @@
 
 <h1 align="center">-       # 『NM1』 Cinnamoroll x Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1hw7mdBrfkQRrLBOor6Ys2r7vq79MSDMS/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/0s2V4xW/NM1-Cinnamoroll-x-Miku.png"/>
+<img src="https://imgur.com/a/uWaxYud"/>
 
 <h1 align="center">-       # 『DT』 Cinnamoroll x Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1yE3mSuKrMrvSUD0tEvj4NtvyEOprmpT2/view?usp=sharing" target="_blank">Click</h1> 
@@ -472,7 +472,7 @@
 
 <h1 align="center">Hayase Yuuka (worst hr player edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1qLuBuEDh9nDVPz1EPh4aDFvIlFNDGbGS/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/vLq1GN9/Hayase-Yuuka-worst-hr-player-edit.png"/>
+<img src="https://imgur.com/a/xajiOLT"/>
 
 <h1 align="center">HMT v1.7.2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iAbwwRXIAwQtEmXw2Gj5jittoph9pF-q/view?usp=sharing" target="_blank">Click</h1> 
@@ -636,7 +636,7 @@
 
 <h1 align="center">rrtyui 2017-08-10 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jiTsS344EGEVv8j9xnPEAcaS2orW2gT5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/vqCx36q/rrtyui-2017-08-10.png"/>
+<img src="https://imgur.com/a/RDo4T2N"/>
 
 <h1 align="center">RYUKAYYYY MONKOOO <
 <align="center">Download: <a href="https://drive.google.com/file/d/1C5neJbyfHMUCY-UR741Nc7q8uvPDJzuF/view?usp=sharing" target="_blank">Click</h1> 
