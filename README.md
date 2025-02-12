@@ -6,6 +6,14 @@
  Google Drive - <a href="https://drive.google.com/drive/folders/1bm3_lATbE1VdHybxXXGZdSMFXBvhsjIe?usp=sharing" target="_blank">Folder</a>
 <img src="https://img.icons8.com/?size=100&id=ya4CrqO7PgnY&format=png&color=000000" height="32"/></h3>
 
+<h1 align="center">-                 #- NM Colored paper miku <
+<align="center">Download: <a href="https://drive.google.com/file/d/10FXl9iVO70u1cDursGfg6n_skZwiUREp/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Rk2RM57y/NM-Colored-paper-miku.png"/>
+
+<h1 align="center">-                 #-DT Colored paper miku <
+<align="center">Download: <a href="https://drive.google.com/file/d/1BHsJm2yWfBV2kOXa_hQCexJcAP6DKH57/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/4Z6rQb9G/DT-Colored-paper-miku.png"/>
+
 <h1 align="center">-             #  『SPUTNIX-NM』 v1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1lXiy9XGJm5JRI_CX5TPGHOGqcLUBJgpH/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/C62X4mK/SPUTNIX-NM-v1-1.png"/>
@@ -101,6 +109,10 @@
 <h1 align="center">-  {S}  FREEDOM DiVE REiMAGINED <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fEKGFT7QrTf1Xnz4acfUiifHl7U5p6IE/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vw9X1D4/S-FREEDOM-Di-VE-REi-MAGINED.png"/>
+
+<h1 align="center">!!YUGEN ❯REMASTERED <
+<align="center">Download: <a href="https://drive.google.com/file/d/15rQo-EgYRf6CNKMvXiDa3mHMUVHl1_Zk/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/6J1PGJHJ/YUGEN-REMASTERED.png"/>
 
 <h1 align="center">- !Sad Cookie <
 <align="center">Download: <a href="https://drive.google.com/file/d/1kVyZYyjgB6YuyWVwfSXk6JzFXCV3bPbS/view?usp=sharing" target="_blank">Click</h1> 
@@ -222,6 +234,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/ngzIEAs.png"/>
 
+<h1 align="center">「Wangan 199X」 [v1.1] <
+<align="center">Download: <a href="https://drive.google.com/file/d/14aeufwd4wH2BMDqm5KBt8CX8BrZ8dpfz/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/S4z5dMcs/Wangan-199-X-v1-1.png"/>
+
 <h1 align="center">↑The Game of Life↓ ft. Hatsune Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1DFPCHUhsfca4Nf1WvaSJWSedb1B_8xdl/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/vc4QgNN/The-Game-of-Life-ft-Hatsune-Miku.png"/>
@@ -313,6 +329,10 @@
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BsGKwzY/bowdown.png"/>
+
+<h1 align="center">Brawl Stars [16-9] <
+<align="center">Download: <a href="https://drive.google.com/file/d/1yJr6ThoezZ_zWeHArPPqgNl_Dqrnt37m/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/LDdwmss7/Brawl-Stars-16-9.png"/>
 
 <h1 align="center">BubbleSkin18-03-22 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
@@ -490,6 +510,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1iE-FusmTCDieaKMtSi4RCHgh2FRNu9ax/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/tXfsxDD/Lesta-Games.png"/>
 
+<h1 align="center">Magic the Noah skin (v1) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1fzWBFlNMYBeGLadWsg9p65cASRAMXE30/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/vCGw1589/Magic-the-Noah-skin-v1.png"/>
+
 <h1 align="center">Menhera-chan <
 <align="center">Download: <a href="https://drive.google.com/file/d/1T_CutkMyIGvK_rjD228IBWxkSLj2NoON/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/rZZBkQG/Menhera-chan.png"/>
@@ -521,6 +545,10 @@
 <h1 align="center">Moyai Balls <
 <align="center">Download: <a href="https://drive.google.com/file/d/1jCkfi5M-H0pLD642SIyfrFqAAE4ea6DN/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/jDjPXvM/Moyai-Balls.png"/>
+
+<h1 align="center">NeedyGirlOverdose <
+<align="center">Download: <a href="https://drive.google.com/file/d/1XkOcrs57C-1O6-TsHLXwrms9OhKVYe_J/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/BHRjrPNr/Needy-Girl-Overdose.png"/>
 
 <h1 align="center">Nier A&R <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fOfL0CASNLJMBo7LRw8mfqbMDMr_BMSi/view?usp=sharing" target="_blank">Click</h1> 
@@ -557,6 +585,10 @@
 <h1 align="center">Plz Enjoy Game 10-08-17 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tK46FLBb9ss7il5f2GdgsZF9asTsWbGt/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/cvxytZW/Plz-Enjoy-Game-10-08-17.png"/>
+
+<h1 align="center">quiltrue 2.0 Arrow Future <
+<align="center">Download: <a href="https://drive.google.com/file/d/1Uv8FrcbfMaFQevusMigOD5HoXwTqRgIR/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/W45cRWss/quiltrue-2-0-Arrow-Future.png"/>
 
 <h1 align="center">Rafis +HDDT <
 <align="center">Download: <a href="https://drive.google.com/file/d/190OrpH8SfY8ptMWr_jjOLJ4URTHbaudc/view?usp=sharing" target="_blank">Click</h1> 
@@ -694,4 +726,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 172</h1>
+<h1 align="center">Количество скинов: 180</h1>
