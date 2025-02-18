@@ -294,6 +294,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1d90Lun0aWstFehPLAUCup4RxXwkO7FL4/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/b3y60b0/Azure.png"/>
 
+<h1 align="center">Azure (+combo) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1QdzLRhs3dQ80dZGbrk4Ijn-am7uysGo6/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/XfT7p9qm/Azure-combo.png"/>
+
 <h1 align="center">ASecretBox (Mathi new) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UZTrCm8yx28QtHav1MMujGO7Y8ItY0Hl/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/PgFXQYb/ASecret-Box-Mathi-new.png"/>
@@ -726,4 +730,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 180</h1>
+<h1 align="center">Количество скинов: 181</h1>
