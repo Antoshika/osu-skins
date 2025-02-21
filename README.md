@@ -498,6 +498,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/18V8bHakHBdMDyZQeiywtNxxuh70G0mUi/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BfY106k/idke-1-0.png"/>
 
+<h1 align="center">idke 1.4 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ZTYy93FHirSGSHJHQp4cIBgRsWMIM1lP/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/1tPGd72B/idke-1-4.png"/>
+
 <h1 align="center">idke 2018-07-12 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1yCghIQKZAH99GGJhfVJW75DHb-Vk4520/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2FFGm0T/idke-2018-07-12.png"/>
@@ -746,4 +750,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 185</h1>
+<h1 align="center">Количество скинов: 186</h1>
