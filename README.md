@@ -130,6 +130,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1TmSo1d_SzIEz2WCXaund6-rwsI0fOQsZ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/d2LJxWH/39.png"/>
 
+<h1 align="center">- clacked rafis_ninerik <
+<align="center">Download: <a href="https://drive.google.com/file/d/1jtZyniTrhv11P-vbydgpesoJN5jlSiEH/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/bjPrp3c0/clacked-rafis-ninerik.png"/>
+
 <h1 align="center">- eLy's+Rika+Ichinose <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m3nbM2FWJ0eocnINRKc33A_d8LN-aqkl/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/z8YwD9q/e-Ly-s-Rika-Ichinose.png"/>
@@ -325,6 +329,10 @@
 <h1 align="center">boop <
 <align="center">Download: <a href="https://drive.google.com/file/d/1EdE5531qQBfprZl7yLOXaUk-qiPG7V-9/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/0BJdvQ4/boop.png"/>
+
+<h1 align="center">boop! <
+<align="center">Download: <a href="https://drive.google.com/file/d/1rjIZQxBZfEIZKcC_3_byA1ETmeZlNwhs/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/bg37KLkS/boop.png"/>
 
 <h1 align="center">boop_modified <
 <align="center">Download: <a href="https://drive.google.com/file/d/1X9meJ5KoIrCc3lxCiuZ-_5T2i909KClE/view?usp=sharing" target="_blank">Click</h1> 
@@ -630,6 +638,14 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1qwWBPOZud3eZKJV4vzeJ8UP3aiji7azH/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/KkBj05N.png"/>
 
+<h1 align="center">Rafis+Inlayo <
+<align="center">Download: <a href="https://drive.google.com/file/d/1N1rP-V2ax4VSbdTG9D-HKSGe2T8KG--t/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Y7BR7sTw/Rafis-Inlayo.png"/>
+
+<h1 align="center">Rafis+Instafade <
+<align="center">Download: <a href="https://drive.google.com/file/d/14L1O8dgfVEocpiGE6Q0_UrdLcWrpdFjz/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/xqm3bM8h/Rafis-Instafade.png"/>
+
 <h1 align="center">rafissss <
 <align="center">Download: <a href="https://drive.google.com/file/d/1JV4X6OCeRlHxV-Y1HtM8_goJAJiL7cUx/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/J5SvLqK/rafissss.png"/>
@@ -730,4 +746,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 181</h1>
+<h1 align="center">Количество скинов: 185</h1>
