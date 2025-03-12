@@ -248,7 +248,7 @@
 
 <h1 align="center">-+Asahi+- <
 <align="center">Download: <a href="https://drive.google.com/file/d/1zCdcPkgLL8N0ZoRPg9ShLWgHZIuEDUKa/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/sdXh3FBr/Asahi.png"/>
+<img src="https://i.ibb.co/9Hc1Gnhn/Asahi.png"/>
 
 <h1 align="center">↑The Game of Life↓ ft. Hatsune Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1DFPCHUhsfca4Nf1WvaSJWSedb1B_8xdl/view?usp=sharing" target="_blank">Click</h1> 
