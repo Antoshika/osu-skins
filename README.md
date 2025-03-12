@@ -88,7 +88,7 @@
 
 <h1 align="center">-      !!wwsou1netnesonya2skintrail <
 <align="center">Download: <a href="https://drive.google.com/file/d/1FzH-z2vkVypzLU_atSqo7vxpeLEVzkvG/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/hKYVWsZ/wwsou1netnesonya2skintrail.png"/>
+<img src="https://i.ibb.co/gZNzC217/wwsou1netnesonya2skintrail.png"/>
 
 <h1 align="center">-    Talala-Chad ⩽ ninerik old ⩾ <
 <align="center">Download: <a href="https://drive.google.com/file/d/1VkUUf_YgjKacz8kvQmnGEIPfLJkZFzcJ/view?usp=sharing" target="_blank">Click</h1> 
@@ -432,7 +432,7 @@
 
 <h1 align="center">dt mix blue <
 <align="center">Download: <a href="https://drive.google.com/file/d/15_YYnhzKkfuHrMHs5MV4TPIcpoStD9uY/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/686SFsV/dt-mix-blue.png"/>
+<img src="https://i.ibb.co/HT6VV3TY/dt-mix-blue.png"/>
 
 <h1 align="center">dt mix white <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vasCMvDLk03DUc2R16OgX5Z1OxuMlcGF/view?usp=sharing" target="_blank">Click</h1> 
