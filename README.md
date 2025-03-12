@@ -432,7 +432,7 @@
 
 <h1 align="center">dt mix blue <
 <align="center">Download: <a href="https://drive.google.com/file/d/15_YYnhzKkfuHrMHs5MV4TPIcpoStD9uY/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/HT6VV3TY/dt-mix-blue.png"/>
+<img src="https://i.imgur.com/uc1jbDg.png"/>
 
 <h1 align="center">dt mix white <
 <align="center">Download: <a href="https://drive.google.com/file/d/1vasCMvDLk03DUc2R16OgX5Z1OxuMlcGF/view?usp=sharing" target="_blank">Click</h1> 
