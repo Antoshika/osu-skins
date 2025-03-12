@@ -128,7 +128,7 @@
 
 <h1 align="center">- [星見雅] I Hoshimi Miyabi <
 <align="center">Download: <a href="https://drive.google.com/file/d/1etfK1qUHVx8hGq2_9pVj4bwp8_2bQwGi/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/W4cf9KhZ/I-Hoshimi-Miyabi.png"/>
+<img src="https://i.ibb.co/351brS8L/I-Hoshimi-Miyabi.png"/>
 
 <h1 align="center">- 39 - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1TmSo1d_SzIEz2WCXaund6-rwsI0fOQsZ/view?usp=sharing" target="_blank">Click</h1> 
