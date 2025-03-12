@@ -126,6 +126,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/12pNh4oAWTOgBTUhup8Kz2uvlKioFUFVI/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/XbLZW5d/paper-bullshnitn.png"/>
 
+<h1 align="center">- [星見雅] I Hoshimi Miyabi <
+<align="center">Download: <a href="https://drive.google.com/file/d/1etfK1qUHVx8hGq2_9pVj4bwp8_2bQwGi/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/W4cf9KhZ/I-Hoshimi-Miyabi.png"/>
+
 <h1 align="center">- 39 - <
 <align="center">Download: <a href="https://drive.google.com/file/d/1TmSo1d_SzIEz2WCXaund6-rwsI0fOQsZ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/d2LJxWH/39.png"/>
@@ -241,6 +245,10 @@
 <h1 align="center">「Wangan 199X」 [v1.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/14aeufwd4wH2BMDqm5KBt8CX8BrZ8dpfz/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/S4z5dMcs/Wangan-199-X-v1-1.png"/>
+
+<h1 align="center">-+Asahi+- <
+<align="center">Download: <a href="https://drive.google.com/file/d/1zCdcPkgLL8N0ZoRPg9ShLWgHZIuEDUKa/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/sdXh3FBr/Asahi.png"/>
 
 <h1 align="center">↑The Game of Life↓ ft. Hatsune Miku <
 <align="center">Download: <a href="https://drive.google.com/file/d/1DFPCHUhsfca4Nf1WvaSJWSedb1B_8xdl/view?usp=sharing" target="_blank">Click</h1> 
@@ -642,6 +650,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1qwWBPOZud3eZKJV4vzeJ8UP3aiji7azH/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/KkBj05N.png"/>
 
+<h1 align="center">Rafis_2017-08-10 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1myF7Y27RHSg3iSeF5AemQzh6sgdn56z5/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/2Y0gXnsv/Rafis-2017-08-10.png"/>
+
 <h1 align="center">Rafis+Inlayo <
 <align="center">Download: <a href="https://drive.google.com/file/d/1N1rP-V2ax4VSbdTG9D-HKSGe2T8KG--t/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Y7BR7sTw/Rafis-Inlayo.png"/>
@@ -750,4 +762,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 186</h1>
+<h1 align="center">Количество скинов: 189</h1>
