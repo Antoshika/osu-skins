@@ -214,6 +214,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/15PysFu0ordtIQiVukezVaxDqUfIOPUJQ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/10CtbFG/Mrekk-1-0-NM.png"/>
 
+<h1 align="center">_• zadymiarz 3 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1h9Xz_ePoT3JIiDU72eingdBToi6ZCNT9/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/pBcCx5gZ/zadymiarz-3.png"/>
+
 <h1 align="center">_neckpainEDIT v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/16Y_ptuZHZTOsni2-P1F1hdGvWjIgHg4u/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/t3rhxvK/neckpain-EDIT-v1.png"/>
@@ -425,6 +429,10 @@
 <h1 align="center">DefinitelyNotRGB <
 <align="center">Download: <a href="https://drive.google.com/file/d/11HXkqDKO6MznoiCF-1DnnL2HLeKtCr3c/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/d0qK1R9/Definitely-Not-RGB.png"/>
+
+<h1 align="center">dobri <
+<align="center">Download: <a href="https://drive.google.com/file/d/1HHbUua62zVR4BGxetTN2MGnE2HsoTZTt/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Kzx21MJD/dobri.png"/>
 
 <h1 align="center">doki_mix_3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1_Ce2dMJEBMdiZFTa95z_I39SFnlr7-LR/view?usp=sharing" target="_blank">Click</h1> 
@@ -762,4 +770,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 189</h1>
+<h1 align="center">Количество скинов: 191</h1>
