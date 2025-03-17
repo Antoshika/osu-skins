@@ -432,7 +432,7 @@
 
 <h1 align="center">dobri <
 <align="center">Download: <a href="https://drive.google.com/file/d/1HHbUua62zVR4BGxetTN2MGnE2HsoTZTt/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/FLHw4TGJ/dobri.png"/>
+<img src=""/>
 
 <h1 align="center">doki_mix_3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1_Ce2dMJEBMdiZFTa95z_I39SFnlr7-LR/view?usp=sharing" target="_blank">Click</h1> 
