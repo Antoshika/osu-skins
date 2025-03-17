@@ -216,7 +216,7 @@
 
 <h1 align="center">_• zadymiarz 3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1h9Xz_ePoT3JIiDU72eingdBToi6ZCNT9/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/pBcCx5gZ/zadymiarz-3.png"/>
+<img src=""/>
 
 <h1 align="center">_neckpainEDIT v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/16Y_ptuZHZTOsni2-P1F1hdGvWjIgHg4u/view?usp=sharing" target="_blank">Click</h1> 
@@ -432,7 +432,7 @@
 
 <h1 align="center">dobri <
 <align="center">Download: <a href="https://drive.google.com/file/d/1HHbUua62zVR4BGxetTN2MGnE2HsoTZTt/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/Kzx21MJD/dobri.png"/>
+<img src=""/>
 
 <h1 align="center">doki_mix_3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1_Ce2dMJEBMdiZFTa95z_I39SFnlr7-LR/view?usp=sharing" target="_blank">Click</h1> 
