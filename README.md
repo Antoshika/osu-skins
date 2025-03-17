@@ -216,7 +216,7 @@
 
 <h1 align="center">_• zadymiarz 3 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1h9Xz_ePoT3JIiDU72eingdBToi6ZCNT9/view?usp=sharing" target="_blank">Click</h1> 
-<img src=""/>
+<img src="https://i.ibb.co/27Xd6qn1/zadymiarz-3.png"/>
 
 <h1 align="center">_neckpainEDIT v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/16Y_ptuZHZTOsni2-P1F1hdGvWjIgHg4u/view?usp=sharing" target="_blank">Click</h1> 
