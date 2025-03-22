@@ -348,7 +348,7 @@
 
 <h1 align="center">boop_modified <
 <align="center">Download: <a href="https://drive.google.com/file/d/1X9meJ5KoIrCc3lxCiuZ-_5T2i909KClE/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/khZphYN/boop-modified.png"/>
+<img src="https://i.ibb.co/272c8wN3/boop-modified.png"/>
 
 <h1 align="center">bowdown <
 <align="center">Download: <a href="https://drive.google.com/file/d/1P34TPtTjPGuwEnjqUOj1vC-ZlKRsmyHs/view?usp=sharing" target="_blank">Click</h1> 
@@ -544,7 +544,7 @@
 
 <h1 align="center">Magic the Noah skin (v1) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fzWBFlNMYBeGLadWsg9p65cASRAMXE30/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/vCGw1589/Magic-the-Noah-skin-v1.png"/>
+<img src="https://i.ibb.co/4Zm2yFDN/Magic-the-Noah-skin-v1.png"/>
 
 <h1 align="center">Menhera-chan <
 <align="center">Download: <a href="https://drive.google.com/file/d/1T_CutkMyIGvK_rjD228IBWxkSLj2NoON/view?usp=sharing" target="_blank">Click</h1> 
