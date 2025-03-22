@@ -190,6 +190,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/11SzkBv_9o5a1Vsi_0leYXipGxWX2YKNq/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BwsCkWz/Hitori-Gotou.png"/>
 
+<h1 align="center">-# Ninomae Ina'nis v1.0 #- <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ui7c-tj-ekXs-dinrRYu5VJuCMU4WpcU/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Zp7GWQx4/Ninomae-Ina-nis-v1-0.png"/>
+
 <h1 align="center">#azer8dawn <
 <align="center">Download: <a href="https://drive.google.com/file/d/1nw12WyjhGKbBzoJe0lIPQlGCeC_7BzmL/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/m61PTQj/azer8dawn.png"/>
@@ -474,6 +478,18 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1siBZ2gdop4ATuQNKs-ALM3iJnvEzKTto/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/rkpFXCY.png"/>
 
+<h1 align="center">Gachi v1.2 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1XT10-6gs2jxUx62CLT2hm81m5Iy0BnvM/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/5xCdhyC7/Gachi-v1-2.png"/>
+
+<h1 align="center">Gachi v1.3 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1rDQgTNlWW8XCOG5tqp9CBQfZGTxEwUyA/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/3m5b5b7d/Gachi-v1-3.png"/>
+
+<h1 align="center">Gachi v2 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1TE9EK18WnFcCAjRCBT9IWH_JI2hRWKq5/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/zH4qsh1z/Gachi-v2.png"/>
+
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/4VBjYW1/Gf-MRT-2019-12-14.png"/>
@@ -569,6 +585,10 @@
 <h1 align="center">MonkoGlassTest <
 <align="center">Download: <a href="https://drive.google.com/file/d/1fu5ToFBY56az-Rhs1-VpXSxvAR1cX7FE/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/BnbGvj3/Monko-Glass-Test.png"/>
+
+<h1 align="center">monkomaliszedit <
+<align="center">Download: <a href="https://drive.google.com/file/d/1qXUHri3Z7RLCmASL4jMjr2oZa9fgB08o/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Gv6jzBzD/monkomaliszedit.png"/>
 
 <h1 align="center">MouseEasy 17-08-23 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1RH5PzYrUMOab89_lwC-H0AWOS_to_DK0/view?usp=sharing" target="_blank">Click</h1> 
@@ -761,6 +781,10 @@
 <h1 align="center">Yet Another Miku Skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZqGfUPvpue4FMkxTl6F2DVoHEWDSJP2q/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2g5mWyp/Yet-Another-Miku-Skin.png"/>
+
+<h1 align="center">Zentoro_ <
+<align="center">Download: <a href="https://drive.google.com/file/d/1u2ypQPtDZtHPA-Jxzp2fiS6e9kHU7ntz/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/5WqRCJc3/Zentoro.png"/>
 
 <h1 align="center">Zylice Skin Mix (2024) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1YrHA2npw9WFNMDGI2XMHkyjjHc1goeo9/view?usp=sharing" target="_blank">Click</h1> 
