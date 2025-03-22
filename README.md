@@ -382,14 +382,6 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1lR_ShoYY9NeHl9lVA9ZCWExp0garHhFw/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/CPptKWK/Bubble-Skin-Happy-Edit.png"/>
 
-<h1 align="center">CGs - v1 <
-<align="center">Download: <a href="https://drive.google.com/file/d/127YVFicvnDl0cDivbfGSkcFJaJUURdpU/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/MVB3wmR/CGs.png"/>
-
-<h1 align="center">CGs - Gachi v1.1 <
-<align="center">Download: <a href="https://drive.google.com/file/d/1-toKGS-OrkROH3W8iJFOv6Acg46mtwZy/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/0MXw2Sv/CGs-Gachi-v1-1.png"/>
-
 <h1 align="center">Chroma <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UsiQRmyQUjOLHfW06HE0f32fx8prsV--/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/HTG6Ybp/Chroma.png"/>
@@ -473,6 +465,14 @@
 <h1 align="center">fwootable DT (Zylice Edit) <
 <align="center">Download: <a href="https://drive.google.com/file/d/14NyyFMxxMVfM0NvUbY3n93VqG22wYBN9/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/5htDrhLJ/fwootable-DT-Zylice-Edit.png"/>
+
+<h1 align="center">Gachi v1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1dFjAca1LB7mP7HU3rPccA_Bf07irs1ex/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/rGQFn9Q7/Gachi-v1.png"/>
+
+<h1 align="center">Gachi v1.1 <
+<align="center">Download: <a href="https://drive.google.com/file/d/1siBZ2gdop4ATuQNKs-ALM3iJnvEzKTto/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/Kpb4KbsN/Gachi-v1-1.png"/>
 
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
