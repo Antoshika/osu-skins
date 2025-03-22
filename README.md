@@ -468,11 +468,11 @@
 
 <h1 align="center">Gachi v1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1dFjAca1LB7mP7HU3rPccA_Bf07irs1ex/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/rGQFn9Q7/Gachi-v1.png"/>
+<img src="https://i.imgur.com/JXOLWTo.png"/>
 
 <h1 align="center">Gachi v1.1 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1siBZ2gdop4ATuQNKs-ALM3iJnvEzKTto/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/Kpb4KbsN/Gachi-v1-1.png"/>
+<img src="https://i.imgur.com/rkpFXCY.png"/>
 
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
