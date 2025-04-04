@@ -36,7 +36,7 @@
 
 <h1 align="center">-         # Hatsune Miku 「Lunar Tempest」 - kirami <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ULgPkBACL6XobuJic_BbCKh79i8tA4xX/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/CsKJSs6/Hatsune-Miku-Lunar-Tempest-kirami.png"/>
+<img src="https://i.imgur.com/5vcAs25.png"/>
 
 <h1 align="center">-         《CK》 Bacon boi 1.0 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
@@ -44,7 +44,7 @@
 
 <h1 align="center">-         《CK》 WhiteCat 2.0 ~ new <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZgO0brUdEHSNz5qIPnHux6hi_Nmuhtzg/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/RpDfQZpf/CK-White-Cat-2-0-new.png"/>
+<img src="https://i.imgur.com/gjtQEDi.png"/>
 
 <h1 align="center">-         《CK》 WhiteCat 2.1 ~ old <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UNSYhMEmitoH7Pylug55mo7U54WX0LpQ/view?usp=sharing" target="_blank">Click</h1> 
@@ -248,7 +248,7 @@
 
 <h1 align="center">「Mio」 Windosu XP (Standard) [v2.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/1tbWLg3UiDQHEECB5SCuT0LNuLbP58g_N/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/mGs9Q1J/Mio-Windosu-XP-Standard-v2-1.png"/>
+<img src="https://i.imgur.com/T8R3Cq7.png"/>
 
 <h1 align="center">「Phosphor」 [v1.1] <
 <align="center">Download: <a href="https://drive.google.com/file/d/14GaR2OTdiYAhRqGTOHf8aDWuSB33nW_D/view?usp=sharing" target="_blank">Click</h1> 
@@ -500,7 +500,7 @@
 
 <h1 align="center">Gachi v4 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11erU5429nV61pIqw2y4crTDAmIPQ_xVb/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/hJfQ9RpZ/Gachi-v4.png"/>
+<img src="https://i.imgur.com/ZJFmYyM.png"/>
 
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
