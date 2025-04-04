@@ -42,6 +42,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/NK5wvCp/CK-Bacon-boi-1-0.png"/>
 
+<h1 align="center">-         《CK》 WhiteCat 2.0 ~ new <
+<align="center">Download: <a href="https://drive.google.com/file/d/1ZgO0brUdEHSNz5qIPnHux6hi_Nmuhtzg/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/RpDfQZpf/CK-White-Cat-2-0-new.png"/>
+
 <h1 align="center">-         《CK》 WhiteCat 2.1 ~ old <
 <align="center">Download: <a href="https://drive.google.com/file/d/1UNSYhMEmitoH7Pylug55mo7U54WX0LpQ/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/0slgN8M.png"/>
@@ -270,6 +274,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1euXXkgvjLgWWqpkVFwoFXonAtvSqRMHs/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/w0CC5y7/a-skin-of-mine-NMHD.png"/>
 
+<h1 align="center">adidas instafade yellow <
+<align="center">Download: <a href="https://drive.google.com/file/d/1mCK1kCRf6nf6Jw2Fn3QtY7UhchUrndgJ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/k6yxQd6Z/adidas-instafade-yellow.png"/>
+
 <h1 align="center">alfie_dt_fancy <
 <align="center">Download: <a href="https://drive.google.com/file/d/1QdtV4SYUndJQue-YTsktpgqxS5xtOrgO/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/xg9kcCW/alfie-dt-fancy.png"/>
@@ -489,6 +497,10 @@
 <h1 align="center">Gachi v2 <
 <align="center">Download: <a href="https://drive.google.com/file/d/1TE9EK18WnFcCAjRCBT9IWH_JI2hRWKq5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/uJbEjQk.png"/>
+
+<h1 align="center">Gachi v4 <
+<align="center">Download: <a href="https://drive.google.com/file/d/11erU5429nV61pIqw2y4crTDAmIPQ_xVb/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/hJfQ9RpZ/Gachi-v4.png"/>
 
 <h1 align="center">GfMRT 2019-12-14 <
 <align="center">Download: <a href="https://drive.google.com/file/d/11v-eoGv2S1ySQ9eREgYXD4XWkbkRUGqJ/view?usp=sharing" target="_blank">Click</h1> 
@@ -770,6 +782,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1F33w6xp6J5D7bmGNbJAMBZ9r86Q3HfVm/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/82wQK04/WATSAP.png"/>
 
+<h1 align="center">Welter-azerinoo <
+<align="center">Download: <a href="https://drive.google.com/file/d/1N635k0JT066Y5zEvl7fXzx5wAiICKmKB/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/xqqGgJFR/Welter-azerinoo.png"/>
+
 <h1 align="center">WindowsXD <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bfLzPgbnjsYiprSIV56I3KJWd6byifCA/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Y0Vs448/Windows-XD.png"/>
@@ -794,4 +810,4 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 197</h1>
+<h1 align="center">Количество скинов: 201</h1>
