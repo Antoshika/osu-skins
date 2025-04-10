@@ -42,6 +42,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1ogiS43keaFGM4YkNCWaQAtI5CeVE2Bzm/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/NK5wvCp/CK-Bacon-boi-1-0.png"/>
 
+<h1 align="center">-         《CK》 Bacon boi 1.0 Edit<
+<align="center">Download: <a href="https://drive.google.com/file/d/1QwARXiC3WtccbziSy499SFBKhG2DSRtl/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/nsgw1Bm6/CK-Bacon-boi-1-0-Edit.png"/>
+
 <h1 align="center">-         《CK》 WhiteCat 2.0 ~ new <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZgO0brUdEHSNz5qIPnHux6hi_Nmuhtzg/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.imgur.com/gjtQEDi.png"/>
@@ -334,6 +338,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1fcJL-Rv0TbpyIaHiw2-2dJ5WD81-Le0i/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/QXcN9G9/Blue-Line-UI-v2-2.png"/>
 
+<h1 align="center">boblowedit <
+<align="center">Download: <a href="https://drive.google.com/file/d/1m_XTPvIb1sSZLC_7XT1gNWwsttKuT5n5/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/xqSHRFJD/boblowedit.png"/>
+
 <h1 align="center">bocchi x siina (skin mix) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LwiJHtpA8c5oWHoqznw2qFD-onZ-lmsj/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/D4qd8fL/bocchi-x-siina-skin-mix.png"/>
@@ -566,6 +574,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1FJpSu7JaTeg0vv5yuZtMjeJdEWj8TDu1/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Kbm0R65/kablaze-11-Jan-2020.png"/>
 
+<h1 align="center">KEYNOT DT <
+<align="center">Download: <a href="https://drive.google.com/file/d/1vroMlPQjlgcfX_O9sY_J_TIZUWaLxnrS/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/NBj3MhY/KEYNOT-DT.png"/>
+
 <h1 align="center">Lesta Games <
 <align="center">Download: <a href="https://drive.google.com/file/d/1iE-FusmTCDieaKMtSi4RCHgh2FRNu9ax/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/tXfsxDD/Lesta-Games.png"/>
@@ -694,6 +706,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1myF7Y27RHSg3iSeF5AemQzh6sgdn56z5/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2Y0gXnsv/Rafis-2017-08-10.png"/>
 
+<h1 align="center">Rafis_2017-08-10 (polishchips edition) <
+<align="center">Download: <a href="https://drive.google.com/file/d/1OcRo-BYpnU4WUkyseg3m0Mi4tqlXRaLQ/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/RpcShD2M/Rafis-2017-08-10-polishchips-edition.png"/>
+
 <h1 align="center">Rafis+Inlayo <
 <align="center">Download: <a href="https://drive.google.com/file/d/1N1rP-V2ax4VSbdTG9D-HKSGe2T8KG--t/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Y7BR7sTw/Rafis-Inlayo.png"/>
@@ -733,6 +749,10 @@
 <h1 align="center">talala-2017-08-10 <
 <align="center">Download: <a href="https://drive.google.com/file/d/10YtImGFZkHlfFP-Wzu3euBjCUWZXBlIN/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/b5srXgs/talala-2017-08-10.png"/>
+
+<h1 align="center">tekkito <
+<align="center">Download: <a href="https://drive.google.com/file/d/1LyJJLbQZ40F6xLXMPVqhuXGY2k4D93rc/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/jZbQ309W/tekkito.png"/>
 
 <h1 align="center">The Emoji Skin 2017-12-08 <
 <align="center">Download: <a href="https://drive.google.com/file/d/12VcElEZcGPlrLTxIIpO39kMUtpM1lKDD/view?usp=sharing" target="_blank">Click</h1> 
@@ -794,6 +814,10 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/18UxvRpek4CNdxkz8DKX4J4Zm-9LIflvc/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/Kz3zhsD/xblue-rafishddt.png"/>
 
+<h1 align="center">yahari <
+<align="center">Download: <a href="https://drive.google.com/file/d/1uz0ujZ1MKD_itHIt_P2s0cBm4JrBGnpV/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/G3cyymPh/yahari.png"/>
+
 <h1 align="center">Yet Another Miku Skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZqGfUPvpue4FMkxTl6F2DVoHEWDSJP2q/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/2g5mWyp/Yet-Another-Miku-Skin.png"/>
@@ -806,8 +830,12 @@
 <align="center">Download: <a href="https://drive.google.com/file/d/1YrHA2npw9WFNMDGI2XMHkyjjHc1goeo9/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/6JPhtMt6/Zylice-Skin-Mix-2024.png"/>
 
+<h1 align="center">zzz <
+<align="center">Download: <a href="https://drive.google.com/file/d/11uelHR_c_YkMcMl5gCDK3ITjygWGYkI_/view?usp=sharing" target="_blank">Click</h1> 
+<img src="https://i.ibb.co/CqGCpJM/zzz.png"/>
+
 <h1 align="center">茗猫 - Silver <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LlSZZnScMpYK0fb8M85RnS2hUNpOzGu_/view?usp=sharing" target="_blank">Click</h1> 
 <img src="https://i.ibb.co/DQw196d/Silver.png"/>
 
-<h1 align="center">Количество скинов: 201</h1>
+<h1 align="center">Количество скинов: 208</h1>
