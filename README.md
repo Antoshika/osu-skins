@@ -800,7 +800,7 @@
 
 <h1 align="center">WATSAP <
 <align="center">Download: <a href="https://drive.google.com/file/d/1F33w6xp6J5D7bmGNbJAMBZ9r86Q3HfVm/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/82wQK04/WATSAP.png"/>
+<img src="https://i.imgur.com/iCoyPSE.png"/>
 
 <h1 align="center">Welter-azerinoo <
 <align="center">Download: <a href="https://drive.google.com/file/d/1N635k0JT066Y5zEvl7fXzx5wAiICKmKB/view?usp=sharing" target="_blank">Click</h1> 
