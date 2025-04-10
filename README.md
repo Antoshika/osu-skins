@@ -44,7 +44,7 @@
 
 <h1 align="center">-         《CK》 Bacon boi 1.0 Edit<
 <align="center">Download: <a href="https://drive.google.com/file/d/1QwARXiC3WtccbziSy499SFBKhG2DSRtl/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/nsgw1Bm6/CK-Bacon-boi-1-0-Edit.png"/>
+<img src="https://i.imgur.com/sxf2WkK.png"/>
 
 <h1 align="center">-         《CK》 WhiteCat 2.0 ~ new <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZgO0brUdEHSNz5qIPnHux6hi_Nmuhtzg/view?usp=sharing" target="_blank">Click</h1> 
@@ -340,7 +340,7 @@
 
 <h1 align="center">boblowedit <
 <align="center">Download: <a href="https://drive.google.com/file/d/1m_XTPvIb1sSZLC_7XT1gNWwsttKuT5n5/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/xqSHRFJD/boblowedit.png"/>
+<img src="https://i.imgur.com/lBRoAEs.png"/>
 
 <h1 align="center">bocchi x siina (skin mix) <
 <align="center">Download: <a href="https://drive.google.com/file/d/1LwiJHtpA8c5oWHoqznw2qFD-onZ-lmsj/view?usp=sharing" target="_blank">Click</h1> 
@@ -804,7 +804,7 @@
 
 <h1 align="center">Welter-azerinoo <
 <align="center">Download: <a href="https://drive.google.com/file/d/1N635k0JT066Y5zEvl7fXzx5wAiICKmKB/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/xqqGgJFR/Welter-azerinoo.png"/>
+<img src="https://i.imgur.com/a1HIwnA.png"/>
 
 <h1 align="center">WindowsXD <
 <align="center">Download: <a href="https://drive.google.com/file/d/1bfLzPgbnjsYiprSIV56I3KJWd6byifCA/view?usp=sharing" target="_blank">Click</h1> 
@@ -816,7 +816,7 @@
 
 <h1 align="center">yahari <
 <align="center">Download: <a href="https://drive.google.com/file/d/1uz0ujZ1MKD_itHIt_P2s0cBm4JrBGnpV/view?usp=sharing" target="_blank">Click</h1> 
-<img src="https://i.ibb.co/G3cyymPh/yahari.png"/>
+<img src="https://i.imgur.com/s7LkwVQ.png"/>
 
 <h1 align="center">Yet Another Miku Skin <
 <align="center">Download: <a href="https://drive.google.com/file/d/1ZqGfUPvpue4FMkxTl6F2DVoHEWDSJP2q/view?usp=sharing" target="_blank">Click</h1> 
