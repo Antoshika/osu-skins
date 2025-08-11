@@ -1,7 +1,7 @@
 <h1 align="center">Twitch: <a href="https://twitch.tv/antoshika_tv" target="_blank">antoshika_tv</a> 
 <img src="https://img.icons8.com/fluency/48/twitch.png" height="48"/>
  
-Неактуально. Переехало на [antoshika.ru](https://antoshika.ru/skins/)</h1>
+Неактуально. Переехало на [antoshika.ru](https://hatsunemiku39.ru/skins/)</h1>
 <h3 align="center">osu! <a href="https://osu.ppy.sh/users/18815482" target="_blank">profile</a>
 <img src="https://img.icons8.com/color/48/osu.png" height="32"/>
  
